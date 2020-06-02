@@ -10,7 +10,7 @@ My names BDSMGeek, I'm a kink enthusiast with a plethora of projects I've worked
 * [Youtube](https://www.youtube.com/bdsmgeek)
 * [Twitter](https://twitter.com/bdsmgeek)
 * [Fetlife](https://fetlife.com/users/1046777)
-* ~~[Tumblr](https://bdsmgeek.tumblr.com)~~
+* ~~[Tumblr](https://bdsmgeek.tumblr.com)~~ [BDSMLR](https://www.pornhub.com/view_video.php?viewkey=ph5dbf0ef542caa)
 
 ## Projects
 
