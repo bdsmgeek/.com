@@ -26,7 +26,7 @@ All things kinky are accessible, safe and **_fun_** with me - Toronto's Pro-Dom 
 
 From extreme to soft domination, I provide authentic, thoughtfully crafted, BDSM consultations to the kinky people of Toronto. I have a genuinely unique style bolstered by years of experience and a personal love of Domination, kink and BDSM.
 
-I offer anywhere from an hour, up to five hour sessions of creative, liberating fun from my private space in south Etobicoke. I play with all genders and experience levels. Check out my kinky menu, location, rates and hard limits below.
+I offer anywhere from an hour, up to five hour sessions of creative, liberating fun from in several great Toronto locations.
 
 <img src="assets/img/alice_puppy_rope_1.jpg" width="400" alt="Image of a cute girl in rope.">
 
