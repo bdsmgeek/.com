@@ -1,6 +1,10 @@
+<head>
+  <link rel="shortcut icon" type="image/png" href="/assets/img/favicon.ico">
+</head>
+
 # BDSMGEEK.com
 
-My names BDSMGeek, I'm a kink enthusiast with a plethora of projects I've worked on in the past.
+My names BDSMGeek, I'm a Toronto based kink enthusiast with a passion for taking care of others 
 
 ## Social Media
 
