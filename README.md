@@ -4,7 +4,7 @@
 
 # BDSMGEEK.com
 
-My names BDSMGeek, I'm a Toronto based kink enthusiast with a passion for taking care of others 
+My names BDSMGeek, I'm a Toronto pro-dom partime and kink enthusiast with a passion for taking care of others all the rest!
 
 ## Social Media
 
