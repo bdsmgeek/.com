@@ -24,7 +24,7 @@ Here are some things I've made or am working on:
 
 All things kinky are accessible, safe and **_fun_** with me - Toronto's Pro-Dom BDSMGeek. I’m a down-to-earth, natural dominant with a real boner for having good times with great people. I don’t take myself too seriously and you don’t have to either.
 
-From extreme to soft domination, I provide authentic, thoughtfully crafted, BDSM consultations to the kinky people of Toronto. I have a genuinely unique style bolstered by years of experience and a personal love of FemDom, kink and BDSM.
+From extreme to soft domination, I provide authentic, thoughtfully crafted, BDSM consultations to the kinky people of Toronto. I have a genuinely unique style bolstered by years of experience and a personal love of Domination, kink and BDSM.
 
 I offer anywhere from an hour, up to five hour sessions of creative, liberating fun from my private space in south Etobicoke. I play with all genders and experience levels. Check out my kinky menu, location, rates and hard limits below.
 
