@@ -95,25 +95,6 @@ All locations depend on rental availability and come as a cost on top of my fee.
 
 ### Ready to Play?
 
-Use the below button to pay the $50 verification fee and you will be directed to the Session Planning Form to start our journey!
+Use the below button to pay the $50 verification fee and I will send a session creation link to your paypal email.
 
-<!-- PayPal Button -->
-<form action="https://www.paypal.com/cgi-bin/webscr" method="post" target="_top">
-  <input type="hidden" name="cmd" value="_s-xclick" />
-  <input type="hidden" name="hosted_button_id" value="JDPQSEYUB395L" />
-  <table>
-    <tr>
-      <td>
-        <input type="hidden" name="on0" value="Email"/>
-        Email
-      </td>
-    </tr>
-    <tr>
-      <td>
-        <input type="text" name="os0" maxLength="200" />
-      </td>
-    </tr>
-  </table>
-  <input type="hidden" name="currency_code" value="CAD" />
-  <input type="button" name="submit" title="PayPal - The safer, easier way to pay online!" alt="Pay Now" value="Pay Now" />
-</form>
+[Verify Payment](https://paypal.me/bdsmgeek/50)
