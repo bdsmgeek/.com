@@ -93,6 +93,7 @@ All locations depend on rental availability and come as a cost on top of my fee.
 
 Use the below button to pay the $50 verification fee and you will be directed to the Session Planning Form to start our journey!
 
+<!-- PayPal Button -->
 <form action="https://www.paypal.com/cgi-bin/webscr" method="post" target="_top">
   <input type="hidden" name="cmd" value="_s-xclick" />
   <input type="hidden" name="hosted_button_id" value="JDPQSEYUB395L" />
@@ -110,5 +111,5 @@ Use the below button to pay the $50 verification fee and you will be directed to
     </tr>
   </table>
   <input type="hidden" name="currency_code" value="CAD" />
-  <input type="image" src="https://www.paypalobjects.com/en_CA/i/btn/btn_paynow_SM.gif" border="0" name="submit" title="PayPal - The safer, easier way to pay online!" alt="Buy Now" />
+  <input type="button" name="submit" title="PayPal - The safer, easier way to pay online!" alt="Pay Now" value="Pay Now" />
 </form>
