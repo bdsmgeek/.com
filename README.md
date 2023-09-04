@@ -26,22 +26,18 @@ Here are some things I've made or am working on:
 
 ## Pro Domming (Male Dominatrix)
 
-All things kinky are accessible, safe and **_fun_** with me - Toronto's Pro-Dom BDSMGeek. I’m a down-to-earth, natural dominant with a real boner for having good times with great people. I don’t take myself too seriously and you don’t have to either.
-
-From extreme to soft domination, I provide authentic, thoughtfully crafted, BDSM consultations to the kinky people of Toronto. I have a genuinely unique style bolstered by years of experience and a personal love of Domination, kink and BDSM.
-
-I offer anywhere from an hour, up to five hour sessions of creative, liberating fun from in several great Toronto locations.
+I've decided in part due to the wonderful [Bastienne](https://bastienne.ca) to get into Pro Doming. With years of experience in the kink community, my rope skills, number of fetishes and experience submitting, I make a great Dom and wanted to share my skills.
 
 <img src="assets/img/alice_puppy_rope_1.jpg" width="400" alt="Image of a cute girl in rope.">
 
-### My Kinky Interests:
+### Fetishes and Kinks I'm into:
 
 * Shibari / Kinbaku / Rope Bondage
 * Impact Play / Spanking / OTK Over the Knee Spanking / Belting / Flogger / Caning / Paddle / Discipline
 * Sensual Massage / Yoni
 * Pain play / Clothing Pegs / Clips / Rubber Bands / Wortenburg Wheel / Pin Wheel / Tooth brush
 * Breast Bondage  / Tit Torture
-* Rough housing / Wrestling / Over powering
+* Rough houing / Wrestling / Over powering
 * Tasks and Challenges
 * Forced Orgasms
 * Orgasm Denial / Chastity
@@ -64,7 +60,7 @@ I offer anywhere from an hour, up to five hour sessions of creative, liberating 
 * Squirting
 * ABDL (Pee Only)
 
-### Locations
+### Places I Play
 
 All locations depend on rental availability and come as a cost on top of my fee.
 
@@ -72,13 +68,13 @@ All locations depend on rental availability and come as a cost on top of my fee.
 * [Oasis Aqualounge](https://oasisaqualounge.com/) -  231 Mutual St, Toronto - $120 all day - no Travel Fee - public 
 * [Studio Ludus](https://torontodungeonrental.com/studio-ludus/) - Mount Dennis - $100 per hour - $30 Travel Fee
 
-### Creative Play
+### Play Fee
 
 * One hour: $250
 * **90 minutes: $400 (recommended)**
 * Each additional 30 minutes: $100 (up to five hours)
 
-### Coaching, Education, Tours
+### Educational Consulting
 
 * One hour: $250
 * **90 minutes: $300 (recommended)**
