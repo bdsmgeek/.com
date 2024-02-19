@@ -22,4 +22,5 @@ Here are some things I've made or am working on:
 ### In-Progress
 
 * [Paraphilic Clinic](https://bdsmgeek.github.io/paraphilic-clinic/) a text adventure game all about fetishes built on twine2 using tweego.
+* [Shibari Notes](https://github.com/bdsmgeek/shibari) a cumulation of my notes and thoughts on rope bondage/Kinbaki.
 
