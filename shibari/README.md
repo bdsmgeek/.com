@@ -12,7 +12,7 @@ So I've put together this note to go over some of the common items that come up 
 
 ## Where I Tie
 
-I tend to suspend only at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) and at [Burdhaus](https://www.birdhausto.com/) events with Dungeon Monitors (DM's).
+I tend to suspend only at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) and at [Birdhaus](https://www.birdhausto.com/) events with Dungeon Monitors (DM's).
 
 I do private floor tying with select play partners at my apartment in Liberty Village.
 
