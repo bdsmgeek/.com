@@ -10,6 +10,12 @@ My names BDSMGeek, I'm a Toronto pro-dom partime and kink enthusiast with a pass
 
 * [Youtube](https://www.youtube.com/bdsmgeek)
 * [Fetlife](https://fetlife.com/users/1046777)
+* [Instagram](https://www.instagram.com/bdsmgeek/)
+
+## Shibari / Kinabku / Rope
+I've re-sparked my love of rope and have been doing a lot of it recently, learning at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/pages/about-us)
+
+If you are interested in getting tied or tying me up read my note on that [here.](/shibari/)
 
 ## Projects
 
