@@ -67,7 +67,7 @@ Some of the things I like to do when tying pretty much at time:
 * Biting exposed skin (earlobe, neck, stomach, arms, back, legs, hips, butt)
 * Spanking / Slapping
 * Pinching
-* Stractchung
+* Scratching
 * Tickling
 * Mouth Rope
 * Crotch Rope
@@ -150,7 +150,7 @@ I personally benefit from:
 * Verbal Assurances ("You did good", "that was fun", "I had a good time"
 * Debrief (What went right, what went wrong, what to do next time)
 * Having some hydration, preferably with electrolytes/sugar (ie Gatorade, I like lemon/lime(yellow or white) or berry flavors (red or blue).)
-* Sometimes something to munch on, chips or protein bar, cookie.
+* Sometimes something to munch on, chips or protein bars, cookies.
 
 This all helps me avoid top drop and feeling shitty the days after. 
 
