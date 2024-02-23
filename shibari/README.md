@@ -38,6 +38,14 @@ Oftentimes this includes skipping my aftercare needs so please value this if I d
 
 All that said I am an open and chill person so just talk to me if you have thoughts/concerns, just respect me and my time please and will do so in turn.
 
+## Photos / Videos and posting to socials
+
+I enjoy seeing people react to my work and creating artistic visions so photos and videos are much appreciated by myself. I also enjoy the freedom to have my face out there without worry.
+
+I will usually post to both my Instagram and Fetlife accounts with attribution as negotiated with my partner.
+
+Please let me know if you are okay with media or not, with whatever limitations.
+
 ## What to Expect?
 
 1. Negotiation, reading this document is part of that but also just having an open and honest conversation before we play and active communication during.
