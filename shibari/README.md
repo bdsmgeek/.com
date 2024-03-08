@@ -2,9 +2,9 @@
 
 I started in kink and rope in 2011 before any schools existed in Toronto, and have been doing it on and off for all of those years.
 
-I love rope, really do, I think its a super great way to really touch on so many different facets of our lives. It's artistic, creative, problem solving, meditative, spiritual, physical, erotic, all in one.
+I love rope, really do, I think it's a super great way to really touch on so many different facets of our lives. It's artistic, creative, problem solving, meditative, spiritual, physical, erotic, all in one.
 
-Its amazing and I love spreading knowledge and the appreciation of it. You can find some more of my notes about rope here: [Shibari Repo](https://github.com/bdsmgeek/shibari)
+It's amazing and I love spreading knowledge and the appreciation of it. You can find some more of my notes about rope here: [Shibari Repo](https://github.com/bdsmgeek/shibari)
 
 As of late I've been learning the Kazami Ranki style of rope suspension from the Toronto Kinbaku style, practicing and doing a lot more with lots of partners.
 
@@ -21,22 +21,37 @@ I do private floor tying with select play partners at my apartment in Liberty Vi
 Thank you so much for being interested in getting tied by me! You're awesome!
 
 I  give allowances for people that want to get tied for the first time, and offer a basic "introduction" to suspension. 
-
-During this I approach the rope  in more of a Service Top mentality, which can be draining as I'm pretty much giving my energy the entire time.
-
-Oftentimes this includes skipping my aftercare needs so please value this if I do offer it to you.
+- During this I approach the rope  in more of a Service Top mentality, which can be draining as I'm pretty much giving my energy the entire time.
+- Oftentimes this includes skipping my aftercare needs so please value this if I do offer it to you.
 
  I ask that if you do want to get tied up for the first time by me that:
 
 1. You make sure I know that this is your first time.
-2. Go through the rest of this document.
-3. Understand I may not want to or have the energy/Mental spoons to tie you at this time, I reserve the right to refuse to tie anyone.
-4. Communicate what type of rope style you'd be looking for (if its the introductory / Clinical or something else)
-5. Understand I may not want to tie you again in the same style.
-6. Getting Tied by me once does not automatically make us play partners, any further play will be talked about.
-7. You are responsible to actively communicate during the tie, I will check in but if something is going on speak up.
+1. Go through the rest of this document.
+1. Understand I may not want to or have the energy/mental spoons to tie you at this time, I reserve the right to refuse to tie anyone.
+1. Communicate what type of rope style you'd be looking for (if its the introductory / Clinical or something else), understand I may not want to tie you again in the same style.
+1. Getting Tied by me once does not automatically make us play partners, any further play will be talked about.
+1. You are responsible to actively communicate during the tie, I will check in but if something is going on speak up.
 
 All that said I am an open and chill person so just talk to me if you have thoughts/concerns, just respect me and my time please and will do so in turn.
+
+### What should you wear
+
+While rope in my opinion is most fun when the model is naked, it is not required. Most clothes can be worn for rope bondage, however loose clothes tend to get in the way when tying so not having to deal with that is preferred.
+
+My recommendation for an outfit for casual/practice rope would generally be what you would wear for yoga, close fitting sportswear is usually ideal, so for ladies:
+- Sports bra or tight shirt
+- booty shorts or leggings
+- If you tend to get cold, bring a sweater and warm socks that are easy to take off and put back on.
+
+For anything in between just wear something that makes you feel sexy and confident without being restrictive, bras with wires can sometimes get in the way but they can be worked around, same with dresses /shirts.
+
+### Additional Resources for Rope Bondage bottoms
+
+If you're interested in educating yourself more I recommend 
+- [The Rope Botoming Guide by KinkyClover](https://theropebottomguide.com/the-rope-bottom-guide/)(*[backup link](../assets/rope_bottom_guide.pdf)
+- [Shibari Study Bottoming Guides (some free, some paid)](https://shibaristudy.com/catalog/search?category_id=27990&utm_source=dropdown&utm_medium=category)
+  - Particularly their [Body Awareness Guide](https://shibaristudy.com/programs/fundamentals-body-awareness?utm_source=dropdown)
 
 ## Photos / Videos and posting to socials
 
@@ -49,14 +64,14 @@ Please let me know if you are okay with media or not, with whatever limitations.
 ## What to Expect?
 
 1. Negotiation, reading this document is part of that but also just having an open and honest conversation before we play and active communication during.
-2. Starting, usually I have some rituals to start tying, putting out my rope, getting my headband on, tools strapped to me, a hug.
-3. Base rope: usually I will need to put on a harness or two on you, depending on the scene this may be done as part of the scene or just another preparation.
-4. Going up, once a harness is in place I'll bring you up and check in on how things feel, we may need to bring you down to make any adjustments to make it more comfortable.
-5. Suspension, in the air I might play with your limbs, move them around, add rope, do whatever I feel is nice to add to the scene.
-6. Coming down, when taking you down I'll endeavor to do some in a smooth and efficient way that avoids being jarring.
-7. Getting out of rope, this can be a lengthy process that can take the same or more then getting into the rope. I usually start after care as part of this process.
-8. Clean Up, if at a public spot, I will need to put away my rope, usually just dumping it into my bag
-9. Aftercare, I tend to like to make sure there are lots of cuddles and reassurance, maybe a debriefing, but can be skipped depending on our negotiation. See the Aftercare section for details.
+1. Starting, usually I have some rituals to start tying, putting out my rope, getting my headband on, tools strapped to me, a hug.
+1. Base rope: usually I will need to put on a harness or two on you, depending on the scene this may be done as part of the scene or just another preparation.
+1. Going up, once a harness is in place I'll bring you up and check in on how things feel, we may need to bring you down to make any adjustments to make it more comfortable.
+1. Suspension, in the air I might play with your limbs, move them around, add rope, do whatever I feel is nice to add to the scene.
+1. Coming down, when taking you down I'll endeavor to do some in a smooth and efficient way that avoids being jarring.
+1. Getting out of rope, this can be a lengthy process that can take the same or more then getting into the rope. I usually start after care as part of this process.
+1. Clean Up, if at a public spot, I will need to put away my rope, usually just dumping it into my bag
+1. Aftercare, I tend to like to make sure there are lots of cuddles and reassurance, maybe a debriefing, but can be skipped depending on our negotiation. See the Aftercare section for details.
 
 ## Rope Style / Desired Feeling and Energy
 
@@ -153,7 +168,7 @@ I believe aftercare is important and try to incorporate it into most play sessio
 I will see to my bottom's needs before my own.
 
 I personally benefit from:
-* Cuddles/Physical Closeness (Myt specific ritual is to put my head in my partners lap and hold them close while receiving
+* Cuddles/Physical Closeness (My ritual is to put my head in my partners lap and hold them close)
 * Physical reassurances (kisses, hugs, pets, touches)
 * Verbal Assurances ("You did good", "that was fun", "I had a good time"
 * Debrief (What went right, what went wrong, what to do next time)
@@ -162,10 +177,40 @@ I personally benefit from:
 
 This all helps me avoid top drop and feeling shitty the days after. 
 
-## Disclaimer
+## Disclaimer / Risks
 
 I take what precautions I can, tie in the presence of educated people, educate myself and practice, carry safety equipment like safety shears and a marlin spike, but at the end of the day an emergency/accident can happen.
 
 This is a low possibility, however still a possibility with rope, if you are not comfortable with the small risks of falling I am happy to do floor work and safer partial suspensions.
 
-Note Nerve Damage is possible at any time with rope, keeping aware of your body and communicating sharp pains, and any loss of sensation to mitigate the problems that could arise from it.
+Resources on Safety:
+- [ShibariStudy.com - Rope Safety Course](https://shibaristudy.com/programs/safety-course?utm_source=dropdown)
+
+### Nerve Damage
+
+Nerve Damage is possible at any time with rope, keeping aware of your body and communicating sharp pains, and any loss of sensation to mitigate the problems that could arise from it.
+
+To check most arm nerves you can do a hand check:
+- Close your fist and stand your thumb up firmly
+- [Shibari Study - Hand Checks](https://shibaristudy.com/programs/hand-checks-free)
+
+Things to do if you feel anything off:
+- Tell me, I'm there for you, we will adjust or remove the rope gently.
+- Apply something cold covered in a cloth
+- take a NSAID (nonsteroidal anti-inflammatory drug) like ibuprofen (Advil, Motrin) or naproxen (Aleve)
+- Rest the limb, massage has the potential of possibly making it worse.
+
+The recovery process from nerve compression can be a few minutes to few months depending on severity.
+
+The following day:
+- Let the limb continue to rest
+- Take vitamin B (helps myelin rebuild itself)
+- If there is still no sign of recovery within a few days, see a doctor, there is a risk of nerve damage (axonotmesis or neurotmesis)
+
+Also, avoid bandages or any kind of compression on the limb including ropes on the limb before full recovery.
+
+Here are some resources if you want to learn more about nerves in bondage:
+- [RopeStudy.com - Rope 101 Lesson on nerves](https://ropestudy.com/courses/101/lessons/reducing-risk/topic/nerves/)
+- [Shibari Study Anatomy- Nerves and Fainting Section](https://shibaristudy.com/programs/safety-course?cid=531662&permalink=anatomy-nerves-fainting)
+- [AnatomieStudio.com - Flyer on Nerves in Rope Bondage](https://anatomiestudio.com/2020/05/22/nerve-damage-flyer-new-and-updated/) *(if [link doesn't work try this](../assets/nerves_in_rope_bondage_by_anatomiestudio.com.pdf))
+- [PlaceDesCordes.com - Anatomical diagram Nerves in rope bondage](https://placedescordes.com/en/content/6-nerve-damage-prevention) *([backup link](../assets/PDC-nervedamage-EN.pdf))
