@@ -29,6 +29,8 @@
 
 ### Tutorials
 
+- [RopeStudy.com - Rope 101 Lesson on nerves](https://ropestudy.com/courses/101/lessons/reducing-risk/topic/nerves/)
+- [Shibari Study Anatomy- Nerves and Fainting Section](https://shibaristudy.com/programs/safety-course?cid=531662&permalink=anatomy-nerves-fainting)
 - [How to Tie a Shibari-Style Rope Shackle](http://www.youtube.com/watch?v=tMbg2Ucno98)
 - [Tying the Perfect Hojo Cuff: A Shibari Tutorial](https://www.youtube.com/watch?v=JVHDXA0296A)
 - [How to Tie a Karada](http://www.symtoys.com/ideas_bondkar1.html)
@@ -49,6 +51,7 @@
 ### Other
 
 - [40 Bondage Positions](https://asibdsm.com/40-bondage-positions)
+- [Medical Journal - Acute Radial Compressive Neuropathy: The Most Common Injury Induced by Japanese Rope Bondage](https://www.cureus.com/articles/155296-acute-radial-compressive-neuropathy-the-most-common-injury-induced-by-japanese-rope-bondage#!/)
 
 ## Books
 
@@ -70,10 +73,10 @@
 
 - [Rope Bondage 101](http://www.kinkfriendly.org/wp-content/uploads/2010/12/kinkfriendly_org_rope_101_compressed.pdf)
 - [The Rope Bottom Guide by Clover ](https://theropebottomguide.com/the-rope-bottom-guide/) / [mirror](/assets/rope_bottom_guide.pdf)
-- [Esinem Style Takate-Kote ](http://esinem.com/wp-content/uploads/2012/06/Esinem-style-takate.pdf)
-- [Finishing Hemp Rope by Angelene Black](https://web.archive.org/web/20101206043719/http://japaneseropeart.com/RopeArt/FinishingHemp.html) / [mirror](../../assets/hempropefinishing_angelene.pdf)
-- [Acute Radial Compressive Neuropathy: The Most Common Injury Induced by Japanese Rope Bondage](https://www.cureus.com/articles/155296-acute-radial-compressive-neuropathy-the-most-common-injury-induced-by-japanese-rope-bondage#!/)
-
+- [Esinem Style Takate-Kote ](http://esinem.com/wp-content/uploads/2012/06/Esinem-style-takate.pdf) [mirror](/assets/Esinem-style-takate.pdf)
+- [Finishing Hemp Rope by Angelene Black](https://web.archive.org/web/20101206043719/http://japaneseropeart.com/RopeArt/FinishingHemp.html) / [mirror](/assets/hempropefinishing_angelene.pdf)
+- [Flyer on Nerves in Rope Bondage by AnatomieStudio.com](https://anatomiestudio.com/2020/05/22/nerve-damage-flyer-new-and-updated/) / [mirror](/assets/nerves_in_rope_bondage_by_anatomiestudio.com.pdf))
+- [Anatomical diagram Nerves in rope bondage by PlaceDesCordes.com](https://placedescordes.com/en/content/6-nerve-damage-prevention) / [mirror](/assets/PDC-nervedamage-EN.pdf))
 
 ## People
 
