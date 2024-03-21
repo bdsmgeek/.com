@@ -144,11 +144,19 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Ouchy (NL)](http://www.niet-lief.nl/zencart/index.php?main_page=index&amp;cPath=26_22_4) - hemp, jute, synthetic hemp
 
 ### Equipement
+
 - [Safety Shears](https://amzn.to/3vj8T0r)
 - [Safety Shear Holster](https://amzn.to/43wNA8m)
 - [Marlin Spike](https://amzn.to/43wNA8m)
+- [Rigging Plate](https://amzn.to/3TNCd8O)
 - [Whipping Cord](https://amzn.to/4aph2zi)
-- 
+- [Belt Pack](https://amzn.to/3x3MxR9)
+- [Furokoshi - Rope Cloth](https://amzn.to/3VoGxMT)
+- [Tengui - Bandana/Head Cloth](https://amzn.to/494XeQC)
+- [Mineral Oil](https://amzn.to/3Vu2dHp)
+- [Jojobo Oil](https://amzn.to/3TNkm1N)
+- [Beeswax](https://amzn.to/3voK3fv)
+- [Soy wax](https://amzn.to/3x5aZl3)
 
 ## Other Collections
 
