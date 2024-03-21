@@ -13,8 +13,9 @@
 - [Ropetopia (WykD Dave / Clover)](https://rope-topia.com/blog/)
 - [Kinbakunomicon by Faviola_Llervu](http://www.wallflowercodex.com/kinbakunomicon/00a.html)
 
-### Collections
+### Collections/Courses
 
+- [CrashRetraint Collection](https://crash-restraint.com/)
 - [FULL CIRCLE KINK](https://www.fullcirclekink.com/index.html) - tutorials, classes
 - [ShibariStudy](https://shibaristudy.com/)/[Youtube](https://www.youtube.com/@ShibariStudy) - tutorials, classes
 - [Rope365](https://rope365.com) - blog, turorials
