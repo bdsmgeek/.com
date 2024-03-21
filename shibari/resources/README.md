@@ -11,6 +11,7 @@
 
 - [Kinbaku Books](https://kokoro-kinbaku.com/)
 - [Ropetopia (WykD Dave / Clover)](https://rope-topia.com/blog/)
+- [Kinbakunomicon by Faviola_Llervu](http://www.wallflowercodex.com/kinbakunomicon/00a.html)
 
 ### Collections
 
