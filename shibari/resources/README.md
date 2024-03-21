@@ -53,6 +53,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 ### Other
 
 - [40 Bondage Positions](https://asibdsm.com/40-bondage-positions)
+- [“Nana to Kaoru”](http://mangafox.me/manga/nana_to_kaoru/) - Cute BDSM Manga
 - [Medical Journal - Acute Radial Compressive Neuropathy: The Most Common Injury Induced by Japanese Rope Bondage](https://www.cureus.com/articles/155296-acute-radial-compressive-neuropathy-the-most-common-injury-induced-by-japanese-rope-bondage#!/)
 
 ## Books
@@ -108,10 +109,6 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Nuite de Cordes](https://www.nuitdescordes.com/eng) - A art exhibit event to showcase rope bondage in Montreal.
 - [Suspended Harmony](https://suspendedharmony.com/) - regular shibari perfomances in Toronto.
 - [Ropecraft](https://ropecraft.net/) - rope convention in Chicago
-
-## Entertainment
-
-- [“Nana to Kaoru”](http://mangafox.me/manga/nana_to_kaoru/) - Cute BDSM Manga
 
 ## Stores
 
