@@ -27,7 +27,6 @@
 - [Rope-Topia Collection](http://rope-topia.com/index.php/portfolio/)
 - [Twisted Monk Collection](http://twistedmonk.com/video.htm)
 - [Hogtied Education Series](http://xshare.com/video/Learn-to-tie-bondage-knots-with-Hogtied-crew)
-- [RopeTopia Tutorials](https://rope-topia.com/tutorials/)
 - [La quarta corda Collection](https://www.laquartacorda.it/en/nawame/)
 
 ### Tutorials
