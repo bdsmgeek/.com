@@ -28,13 +28,13 @@
 - [Rope-Topia Collection](http://rope-topia.com/index.php/portfolio/)
 - [Twisted Monk Collection](http://twistedmonk.com/video.htm)
 - [Hogtied Education Series](http://xshare.com/video/Learn-to-tie-bondage-knots-with-Hogtied-crew)
-- [Tying the Perfect Hojo Cuff: A Shibari Tutorial](https://www.youtube.com/watch?v=JVHDXA0296A)
 - [RopeTopia Tutorials](https://rope-topia.com/tutorials/)
 
 ### Tutorials
 
 - [How to Tie onto a vertical pole for a 'hashira' suspension.](https://www.youtube.com/watch?v=TsBRKqVTYN8)
 - [How to Tie a Shibari-Style Rope Shackle](http://www.youtube.com/watch?v=tMbg2Ucno98)
+- [Tying the Perfect Hojo Cuff: A Shibari Tutorial](https://www.youtube.com/watch?v=JVHDXA0296A)
 - [How to Tie a Karada](http://www.symtoys.com/ideas_bondkar1.html)
 - [CBT Tying Tutorial by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60cfc979c4d3f)
 - [Male Chastity Tie by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60d52caa08cd3)
