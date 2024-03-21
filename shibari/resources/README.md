@@ -99,12 +99,11 @@
 
 - [Fetlife - Riggers and Rope Sluts Group - Rope Convention Calendar 2024 by Dunter](https://fetlife.com/groups/51/posts/25525282)
 - [Nuite de Cordes](https://www.nuitdescordes.com/eng) - A art exhibit event to showcase rope bondage in Montreal.
-- [Shibaricon](http://www.shibaricon.com/)- large rope bondage convention in Chicago.
 - [Suspended Harmony](https://suspendedharmony.com/) - regular shibari perfomances in Toronto.
 - [Ropecraft](https://ropecraft.net/) - rope convention in Chicago
-- 
 
 ## Entertainment
+
 - [“Nana to Kaoru”](http://mangafox.me/manga/nana_to_kaoru/) - Cute BDSM Manga
 
 ## Stores
