@@ -16,7 +16,6 @@
 ### Collections/Courses
 
 - [CrashRetraint Collection](https://crash-restraint.com/)
-- [FULL CIRCLE KINK](https://www.fullcirclekink.com/index.html) - tutorials, classes
 - [ShibariStudy](https://shibaristudy.com/)/[Youtube](https://www.youtube.com/@ShibariStudy) - tutorials, classes
 - [Rope365](https://rope365.com) - blog, turorials
 - [The Dutchy Tutorials](https://www.theduchy.com/tutorials/)/[Youtube](https://www.youtube.com/@LazarusRedmayne) - tutorials
@@ -26,6 +25,7 @@
 - [RVARope Rope Study](https://rvarope.com/study/)
 - [Two Knotty Boy Collection](http://www.knottyboys.com/code/downloads.php)
 - [Rope-Topia Collection](http://rope-topia.com/index.php/portfolio/)
+- [Full Circle Kink](https://www.fullcirclekink.com/index.html) - tutorials, classes
 - [Twisted Monk Collection](http://twistedmonk.com/video.htm)
 - [Hogtied Education Series](http://xshare.com/video/Learn-to-tie-bondage-knots-with-Hogtied-crew)
 - [La quarta corda Collection](https://www.laquartacorda.it/en/nawame/)
@@ -68,7 +68,6 @@
 - [Two Knotty Boys Showing You The Ropes: A Step-by-Step, Illustrated Guide for Tying Sensual and Decorative Rope Bondage](http://www.amazon.com/gp/product/193116049X/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=193116049X&amp;linkCode=as2&amp;tag=b033b-20)
 - [Two Knotty Boys Back on the Ropes](http://www.amazon.com/gp/product/1931160694/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1931160694&amp;linkCode=as2&amp;tag=b033b-20)
 - [Shibari You Can Use: Japanese Rope Bondage and Erotic Macramé](http://www.amazon.com/gp/product/061514490X/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=061514490X&amp;linkCode=as2&amp;tag=b033b-20)
-- [Bondage For Sex](http://www.amazon.com/gp/product/0977723801/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=0977723801&amp;linkCode=as2&amp;tag=b033b-20)
 - [Arisue's Kinbaku Theory And Practices](http://www.jugoya.com/shop/index.php?main_page=product_info&products_id=255&language=en)
 - [Acute Radial Compressive Neuropathy: The Most Common Injury Induced by Japanese Rope Bondage](https://www.cureus.com/articles/155296-acute-radial-compressive-neuropathy-the-most-common-injury-induced-by-japanese-rope-bondage#!/)
 
