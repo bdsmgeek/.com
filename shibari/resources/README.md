@@ -135,6 +135,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 ### International
 
+- [Nawaya JP](https://www.nawaya.jp/)
 - [BindMe.nl (NL)](http://www.bindme.nl/etouw3.php) - hemp, jute
 - [Esinem (UK)](http://stores.ebay.co.uk/ESINEM-Rope) - hemp, jute, linen
 - [Anatomie Rope Shop (UK)](https://ca.shibaristore.com/) jute, cotton
