@@ -5,7 +5,6 @@
 ### Wikis
 
 - [Nawapedia](https://nawapedia.net/index.php?title=Main_Page) - shibari wiki
-- [Be Knotty - Wiki](http://www.beknotty.com/wiki/index.php?title=Main_Page)
 - [Wiki Article on Shibari](http://en.wikipedia.org/wiki/Japanese_bondage)
 
 ### Blogs
