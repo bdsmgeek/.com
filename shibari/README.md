@@ -4,7 +4,7 @@ I started in kink and rope in 2011 before any schools existed in Toronto, and ha
 
 I love rope, really do, I think it's a super great way to really touch on so many different facets of our lives. It's artistic, creative, problem solving, meditative, spiritual, physical, erotic, all in one.
 
-It's amazing and I love spreading knowledge and the appreciation of it. You can find some more of my notes about rope here: [Shibari Repo](https://github.com/bdsmgeek/shibari)
+It's amazing and I love spreading knowledge and the appreciation of it. I keep some [notes here](./notes.md) 
 
 As of late I've been learning the Kazami Ranki style of rope suspension from the Toronto Kinbaku style, practicing and doing a lot more with lots of partners.
 
