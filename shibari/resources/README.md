@@ -21,7 +21,6 @@
 - [The Dutchy Tutorials](https://www.theduchy.com/tutorials/)/[Youtube](https://www.youtube.com/@LazarusRedmayne) - tutorials
 - [Rope &amp; Knots](http://www.ussartf.org/ropes_knots.htm)
 - [Animated Knots](http://www.animatedknots.com/)
-- [Shibari Nation Tutorial on Rope](http://shibari-nation.com/freecontent/main.php?page=ropeprep)
 - [KinkAcademy](http://www.kinkacademy.com/home/free/) - Free Video’s (paysite)
 - [RVARope Rope Study](https://rvarope.com/study/)
 - [Two Knotty Boy Collection](http://www.knottyboys.com/code/downloads.php)
