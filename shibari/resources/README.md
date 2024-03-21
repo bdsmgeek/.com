@@ -38,7 +38,7 @@
 - [CBT Tying Tutorial by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60cfc979c4d3f)
 - [Male Chastity Tie by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60d52caa08cd3)
 - [Fetlife - So you want to get started with self-bondage… by EbiMcKnotty](https://fetlife.com/users/67957/posts/1685838)
-- [Finishing Hemp Rope by Angelene Black](https://web.archive.org/web/20101206043719/http://japaneseropeart.com/RopeArt/FinishingHemp.html)[mirror](../../assets/hempropefinishing_angelene.pdf)
+- [Finishing Hemp Rope by Angelene Black](https://web.archive.org/web/20101206043719/http://japaneseropeart.com/RopeArt/FinishingHemp.html) / [mirror](../../assets/hempropefinishing_angelene.pdf)
 - [Pete’s Notes On Rope Cleaning](https://www.ropeconnections.com/notes-on-cleaning-rope/)
 - [Caring For Your Twisted Monk Rope](https://www.twistedmonk.com/pages/ropecare)
 
