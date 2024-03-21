@@ -19,6 +19,7 @@ If you are interested in getting tied or tying me up read my note on that [here.
 
 * [My Notes on Shibari](/shibari/notes)
 * [Terminology](/shibari/terms)
+* [List of Shibari Resources](/shibari/resources)
 
 ## Projects
 
