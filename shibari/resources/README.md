@@ -1,5 +1,7 @@
 # My collection of Shibari/Kinbaku resouces
 
+If you notice anything that needs to be updated [please open a issue!](https://github.com/bdsmgeek/.com/issues/new)
+
 ## Websites
 
 ### Wikis
@@ -63,7 +65,7 @@
 - [Bondage mini book by Lord Morpheous](https://amzn.to/497sbU8)
 - [Two Knotty Boys Showing You The Ropes: A Step-by-Step, Illustrated Guide for Tying Sensual and Decorative Rope Bondage](https://amzn.to/3voBPEk)
 - [Two Knotty Boys Back on the Ropes](https://amzn.to/3Vu5hTP)
-- [Shibari You Can Use: Japanese Rope Bondage and Erotic Macramé](https://amzn.to/3x7nHjj)
+- [Shibari You Can Use: Japanese Rope Bondage and Erotic Macramé by Lee Harrington](https://amzn.to/3x7nHjj)
 - [Tension Montreal Fundamentals](https://tensionmtl.ca/products/fundamentals-e-book-pdf-en?variant=43687728087195) - basics
 - [Complete Shibari Volume 1: Land by Douglas Kent](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-1-land)
 - [Complete Shibari Volume 2: Sky by Douglas Kent](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-2-sky)
