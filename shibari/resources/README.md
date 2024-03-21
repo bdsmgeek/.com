@@ -62,8 +62,8 @@
 - [Rope Bondage 101 ](http://www.kinkfriendly.org/wp-content/uploads/2010/12/kinkfriendly_org_rope_101_compressed.pdf)- Free PDF via kinkfriendly.com
 - [The Rope Bottom Guide by Clover ](https://theropebottomguide.com/the-rope-bottom-guide/)
 - [Esinem Style Takate-Kote ](http://esinem.com/wp-content/uploads/2012/06/Esinem-style-takate.pdf)- Free PDF via esinem.com
-- [Complete Shibari Volume 1: Land](http://www.amazon.com/gp/product/B008H11W56/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=B008H11W56&amp;linkCode=as2&amp;tag=b033b-20)
-- [Complete Shibari Volume 2: Sky](http://www.amazon.com/gp/product/B008I1A9EK/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=B008I1A9EK&amp;linkCode=as2&amp;tag=b033b-20)
+- [Complete Shibari Volume 1: Land](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-1-land)
+- [Complete Shibari Volume 2: Sky](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-2-sky)
 - [Two Knotty Boys Showing You The Ropes: A Step-by-Step, Illustrated Guide for Tying Sensual and Decorative Rope Bondage](http://www.amazon.com/gp/product/193116049X/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=193116049X&amp;linkCode=as2&amp;tag=b033b-20)
 - [Two Knotty Boys Back on the Ropes](http://www.amazon.com/gp/product/1931160694/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1931160694&amp;linkCode=as2&amp;tag=b033b-20)
 - [Shibari You Can Use: Japanese Rope Bondage and Erotic Macramé](http://www.amazon.com/gp/product/061514490X/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=061514490X&amp;linkCode=as2&amp;tag=b033b-20)
