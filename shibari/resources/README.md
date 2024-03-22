@@ -52,6 +52,8 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Bondage ballet performance by Maleficent Martini & Esinem at Torture Garden, Act I](https://www.youtube.com/watch?v=TgbSW5S6TYE)
 - [Kinbaku Luxuria Collection](http://kinbakuluxuria.com/dir/videos-2/)
 - [Fetlife - Esinem Kinoko Hajime I](https://fetlife.com/users/32081/videos/12348)
+- [Tifereth and Joan Von Brook- Rope Spirit X](https://youtu.be/FOGIjzG9m6M?si=34r-HqfzyefMW5fu)
+- [Tifereth and Oublietta- Impulse Halloween 2017](https://youtu.be/TFGRSQhVAQs?si=eNUoxgIagBy_8rlS)
 
 ### Other
 
