@@ -45,6 +45,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Fetlife - So you want to get started with self-bondage… by EbiMcKnotty](https://fetlife.com/users/67957/posts/1685838)
 - [Pete’s Notes On Rope Cleaning](https://www.ropeconnections.com/notes-on-cleaning-rope/)
 - [Caring For Your Twisted Monk Rope](https://www.twistedmonk.com/pages/ropecare)
+- [Rope Butter by Amatsunawa](https://amatsunawa.com/Rope-Care/Rope-Butter-Recipe/)
 
 ### Perfomance Videos
 
