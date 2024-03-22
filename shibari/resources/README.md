@@ -38,6 +38,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Handling – Moving Rope by The Duchy](https://www.theduchy.com/handling-moving-rope)
 - [Tying the Perfect Hojo Cuff: A Shibari Tutorial](https://www.youtube.com/watch?v=JVHDXA0296A)
 - [How to Tie a Karada](http://www.symtoys.com/ideas_bondkar1.html)
+- [Tifereths Peach Tie](https://youtu.be/5O_i6cgBzYw?si=P8Jed18zSMD0UVzg)
 - [How to Tie onto a vertical pole for a 'hashira' suspension.](https://www.youtube.com/watch?v=TsBRKqVTYN8)
 - [CBT Tying Tutorial by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60cfc979c4d3f)
 - [Male Chastity Tie by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60d52caa08cd3)
