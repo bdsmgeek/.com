@@ -34,6 +34,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [RopeStudy.com - Rope 101 Lesson on nerves](https://ropestudy.com/courses/101/lessons/reducing-risk/topic/nerves/)
 - [Shibari Study Anatomy- Nerves and Fainting Section](https://shibaristudy.com/programs/safety-course?cid=531662&permalink=anatomy-nerves-fainting)
 - [How to Tie a Shibari-Style Rope Shackle](http://www.youtube.com/watch?v=tMbg2Ucno98)
+- [Handling – Moving Rope by The Duchy](https://www.theduchy.com/handling-moving-rope)
 - [Tying the Perfect Hojo Cuff: A Shibari Tutorial](https://www.youtube.com/watch?v=JVHDXA0296A)
 - [How to Tie a Karada](http://www.symtoys.com/ideas_bondkar1.html)
 - [How to Tie onto a vertical pole for a 'hashira' suspension.](https://www.youtube.com/watch?v=TsBRKqVTYN8)
