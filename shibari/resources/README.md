@@ -18,7 +18,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 ### Collections/Courses
 
-- [Rope Sensei - online shobaribvideo arrgigate](https://ropesensei.com/)
+- [Rope Sensei](https://ropesensei.com/)  - online shibari video agrigate
 - [CrashRetraint Collection](https://crash-restraint.com/)
 - [Rope365](https://rope365.com) - blog, turorials
 - [Two Knotty Boy Collection](http://www.knottyboys.com/code/downloads.php)
