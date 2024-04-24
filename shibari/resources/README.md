@@ -106,10 +106,11 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Find A Community by Rope365](https://rope365.com/finding-a-local-community/)
 - [Fetlife - Rope Groups](https://fetlife.com/groups/120723)
 - [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) - Rope school studying Kazami Ryu's style in Toronto, Ontario, Canada 
-- [Birdhaus](https://www.birdhausto.com/) - Kink friendly event space, with lots of rope, home to Tifereth.
+- [Birdhaus](https://www.birdhausto.com/) - Kink friendly event space, with lots of rope, home to Tifereth. Toronto, ON, Canada
 - [Tension Montreal](https://tensionmtl.ca/) - Rope school in Montreal Quebec Canada
 - [Place des Cordes](https://placedescordes.com/en/) - rope space in Paris, France
 - [Anatomie Studio](https://anatomiestudio.com/) - Rope Space in Lodon, United Kindom
+- [deGiotto Rope](https://degiottorope.com/) - Rope space Hockley, TX, USA
 
 ## Events
 
@@ -136,6 +137,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Vintage Rope (US)](http://vintagerope.com/) - hemp, cotton, MFP, accessories
 - [Douglas Kent Rope](https://douglaskentrope.com/collections/all)
 - [Amatsunawa](https://us.amatsunawa.com/) / [Esty](https://www.etsy.com/shop/CleanRopeCompany) high quality jute
+- [deGiotto Rope](https://degiottorope.com/collections/jute-rope)
 
 #### USA Suppliers
 
