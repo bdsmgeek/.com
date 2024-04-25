@@ -83,8 +83,8 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 ### Free PDF Downloads
 
 - [Rope Bondage 101](http://www.kinkfriendly.org/wp-content/uploads/2010/12/kinkfriendly_org_rope_101_compressed.pdf)
-- [The Rope Bottom Guide by Clover ](https://theropebottomguide.com/the-rope-bottom-guide/) / [mirror](/assets/rope_bottom_guide.pdf)
-- [Esinem Style Takate-Kote ](http://esinem.com/wp-content/uploads/2012/06/Esinem-style-takate.pdf) [mirror](/assets/Esinem-style-takate.pdf)
+- [The Rope Bottom Guide by Clover](https://theropebottomguide.com/the-rope-bottom-guide/) / [mirror](/assets/rope_bottom_guide.pdf)
+- [Esinem Style Takate-Kote](http://esinem.com/wp-content/uploads/2012/06/Esinem-style-takate.pdf) [mirror](/assets/Esinem-style-takate.pdf)
 - [Finishing Hemp Rope by Angelene Black](https://web.archive.org/web/20101206043719/http://japaneseropeart.com/RopeArt/FinishingHemp.html) / [mirror](/assets/hempropefinishing_angelene.pdf)
 - [Flyer on Nerves in Rope Bondage by AnatomieStudio.com](https://anatomiestudio.com/2020/05/22/nerve-damage-flyer-new-and-updated/) / [mirror](/assets/nerves_in_rope_bondage_by_anatomiestudio.com.pdf)
 - [Anatomical diagram Nerves in rope bondage by PlaceDesCordes.com](https://placedescordes.com/en/content/6-nerve-damage-prevention) / [mirror](/assets/PDC-nervedamage-EN.pdf)
