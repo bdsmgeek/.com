@@ -25,12 +25,11 @@ My preferred maintenance routine is:
 3. Hang your rope, hanging your rope loosely or "resting it" allows for the tension into the strands to naturally even out. helping with the same issues from step 1.
 4. Optionally you can wax your rope with beeswax or paraffin by pulling the rope through a block. I don't really do this.
 
-- Mocojute explains how he takes care of his rope: https://youtube.com/watch?v=uMq4SF2q1bw
+- [Mocojute explains how he takes care of his rope](https://youtube.com/watch?v=uMq4SF2q1bw)
 
 ## Ties
 
-### Woven Hip Harness
+### Hip Harnesses
 
-Hip harness recommended by PondLilly for self suspensions.
-
-- https://vimeo.com/384992981
+- [Woven hip harness ](https://vimeo.com/384992981)
+  - Hip harness recommended by PondLilly for self suspensions.
