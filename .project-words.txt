@@ -34,6 +34,7 @@ Kyrel
 Langman
 Llervu
 Luxuria
+markdownlint
 Midori
 Miumi
 Morpheous
