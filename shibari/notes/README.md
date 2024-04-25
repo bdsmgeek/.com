@@ -1,6 +1,6 @@
 ## Rope Safety
 
-Rope bondage is not safe, it is considered "edge" play. Whoever is getting tied is in danger of many very real dangers to their health, from falling and breaking their teeth to nerve compression damage thst can loose them their mobility and sensation in a limb.
+Rope bondage is not safe, it is considered "edge" play. Whoever is getting tied is in danger of many very real dangers to their health, from falling and breaking their teeth to nerve compression damage that can loose them their mobility and sensation in a limb.
 
 Please do your own due diligence and take all of these resources as ways expand on a solid base of understanding. If possible in person lessons from professionals is highly recommend.
 

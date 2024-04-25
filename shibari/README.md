@@ -49,7 +49,7 @@ For anything in between just wear something that makes you feel sexy and confide
 ### Additional Resources for Rope Bondage bottoms
 
 If you're interested in educating yourself more I recommend
-- [The Rope Botoming Guide by KinkyClover](https://theropebottomguide.com/the-rope-bottom-guide/)(*[backup link](../assets/rope_bottom_guide.pdf))
+- [The Rope Bottoming Guide by KinkyClover](https://theropebottomguide.com/the-rope-bottom-guide/)(*[backup link](../assets/rope_bottom_guide.pdf))
 - [Shibari Study Bottoming Guides (some free, some paid)](https://shibaristudy.com/catalog/search?category_id=27990&utm_source=dropdown&utm_medium=category)
   - Particularly their [Body Awareness Guide](https://shibaristudy.com/programs/fundamentals-body-awareness?utm_source=dropdown)
 
