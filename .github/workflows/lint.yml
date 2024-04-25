@@ -19,5 +19,9 @@ jobs:
     steps:
       # Spellcheck
       - uses: actions/checkout@v2
+      - name: Run Prettier
+        uses: creyD/prettier_action@v4.3
+        with:
+          prettier_options: --write .
       - uses: streetsidesoftware/cspell-action@v6
       - uses: articulate/actions-markdownlint@v1
