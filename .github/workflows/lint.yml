@@ -8,7 +8,7 @@ on:
   pull_request:
     branches: [ master ]
   # Allows you to run this workflow manually from the Actions tab
-  workflow_dispatch:
+  workflow_run:
 # A workflow run is made up of one or more jobs that can run sequentially or in parallel
 jobs:
   # This workflow contains a single job called "build"
@@ -19,27 +19,40 @@ jobs:
     steps:
       # Spellcheck
       - uses: actions/checkout@v2
-      - run: |
-          #!/bin/bash
+      - name: Update project words
+        run: |
+          # Extract the words, remove quotes and commas, and append to the file
+          grep -o '"[^"]*"' .vscode/settings.json | sed 's/"//g' | sed 's/,//g' >> .project-words.txt
 
-          # Path to your settings.json file
-          SETTINGS=".vscode/settings.json"
+          # Remove duplicates
+          awk '!seen[$0]++' .project-words.txt > temp && mv temp .project-words.txt
 
-          # Extract the words and remove quotes and commas
-          grep -o '"[^"]*"' $SETTINGS | sed 's/"//g' | sed 's/,//g' > .project-words.txt
+      - name: Commit changes
+        id: commit
+        run: |
           # Check if there are any changes
           if git diff --quiet .project-words.txt; then
             echo "No changes to commit"
+            echo "::set-output name=pushed::false"
           else
             git config --local user.email "action@github.com"
             git config --local user.name "GitHub Action"
             git add .project-words.txt
             git commit -m "Update .project-words.txt"
             echo "Changes committed"
+            echo "::set-output name=pushed::true"
           fi
+
       - name: Push changes
         uses: ad-m/github-push-action@master
         with:
           github_token: ${{ secrets.GITHUB_TOKEN }}
+
+      - name: New Dictionary Words Committed, fail.
+        run: |
+          if [[ "${{ steps.commit.outputs.pushed }}" == "true" ]]; then
+            exit 1
+          fi
+
       - uses: streetsidesoftware/cspell-action@v6
       - uses: articulate/actions-markdownlint@v1
