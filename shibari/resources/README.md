@@ -48,7 +48,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Caring For Your Twisted Monk Rope](https://www.twistedmonk.com/pages/ropecare)
 - [Rope Butter by Amatsunawa](https://amatsunawa.com/Rope-Care/Rope-Butter-Recipe/)
 
-### Perfomance Videos
+### Performance Videos
 
 - [Ichinawa (ippon-nawa/1 rope) technique: Esinem & Ika Noire](https://vimeo.com/31769501)
 - [Bondage ballet performance by Maleficent Martini & Esinem at Torture Garden, Act I](https://www.youtube.com/watch?v=TgbSW5S6TYE)
@@ -152,7 +152,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Anatomie Rope Shop (UK)](https://ca.shibaristore.com/) jute, cotton
 - [Ouchy (NL)](http://www.niet-lief.nl/zencart/index.php?main_page=index&amp;cPath=26_22_4) - hemp, jute, synthetic hemp
 
-### Equipement
+### Equipment
 
 - [Safety Shears](https://amzn.to/3vj8T0r)
 - [Safety Shear Holster](https://amzn.to/43wNA8m)
