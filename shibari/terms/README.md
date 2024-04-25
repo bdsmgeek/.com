@@ -21,11 +21,12 @@ Glossary of shibari terms for my own memorization
 - kinbaku - literally "tight binding". It does not convey the meaning of sexual bondage outside SM circles. However, some experts, e.g. Kinoko Hajime and Osada Steve, make a distinction from "shibari" in that it is used to refer to sessions with a strong emotional exchange.
 - kinbakushi - kinbaku master, can be shortened to bakushi.
 - nawashi - literally, "a maker of rope", but in SM circles it means a professional "rope artist"
-- shibaru -  tie or bind with a rope
-- Hojojutsu - 
+- shibaru - tie or bind with a rope
+- Hojojutsu -
 
 ## Patterns / Ties
-- takate kote - box tie 
+
+- takate kote - box tie
 - Ushiro takate kote – Foundational form for most shibari ties, capturing the upper body / breasts and arms behind back (when ushiro) in a "U" shape behind the back
 - Single wrist binding 片手首縛り Katate kubi shibari
 - Both wrists binding 両手首縛り Ryoute kubi shibari
@@ -54,7 +55,7 @@ Glossary of shibari terms for my own memorization
 - High hands on front tie 前方 高手 縛り– Zenpou takate shibari
 - Kataashi tsuri – a "one-legged suspension"
 - Tanuki – a "raccoon dog" - suspended from ankles and wrists backwards
-- Tazuki – a "criss-cross harness" 
+- Tazuki – a "criss-cross harness"
 - Agoura – a less severe tie similar to an ebi
 - Hishi – a tie using diamond shapes. When done as a full body tie, it is sometimes also called hishi-kikkou.
 - Kikkou – a body tie that ends with a tortoise shell design in the front upper torso.
