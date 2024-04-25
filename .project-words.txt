@@ -61,6 +61,7 @@ kubi
 Kyrel
 Langman
 Llervu
+Ludvig
 Luxuria
 Maete
 markdownlint
@@ -77,6 +78,7 @@ nawa
 Nawapedia
 nawashi
 Nawaya
+Neko
 neuro
 neurotmesis
 Nightwolf
