@@ -1,3 +1,5 @@
+# Thoughts and Notes about Shibari
+
 ## Rope Safety
 
 Rope bondage is not safe, it is considered "edge" play. Whoever is getting tied is in danger of many very real dangers to their health, from falling and breaking their teeth to nerve compression damage that can loose them their mobility and sensation in a limb.
@@ -7,8 +9,6 @@ Please do your own due diligence and take all of these resources as ways expand 
 Always have a method to get your bottom out from the rope as fast as possible, note this not always requires cutting the rope but have safety sears or a rope knife at hand. I also recommend a Merlin spike for jammed knots.
 
 I've taken to wearing a fanny pack around my waist with all my tools in it when I tie.
-
-# Thoughts and Notes about Shibari
 
 ## Buying Rope
 
