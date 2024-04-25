@@ -18,10 +18,10 @@ My names BDSMGeek, I'm a Toronto kink enthusiast with a passion for rope and but
 
 I've re-sparked my love of rope and have been doing a lot of it recently, learning at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/pages/about-us)
 
-If you are interested in getting tied or tying me up read my note on that [here.](/shibari/)
+If you are interested in getting tied or tying me up read my note on that [here.](/shibari/me)
 
-- [My Notes on Shibari](/shibari/notes)
-- [Terminology](/shibari/terms)
+- [My Notes on Shibari](/shibari)
+- [Terminology / Lexicon](/shibari/terms)
 - [List of Shibari Resources](/shibari/resources)
 
 ## Projects
@@ -35,4 +35,3 @@ Here are some things I've made or am working on:
 ### In-Progress
 
 - [Paraphilic Clinic](https://bdsmgeek.github.io/paraphilic-clinic/) a text adventure game all about fetishes built on twine2 using tweego.
-- [Shibari Notes](https://github.com/bdsmgeek/shibari) a cumulation of my notes and thoughts on rope bondage/Kinbaku.
