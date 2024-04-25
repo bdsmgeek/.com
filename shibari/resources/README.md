@@ -1,4 +1,4 @@
-# My collection of Shibari/Kinbaku resouces
+# My collection of Shibari/Kinbaku resources
 
 If you notice anything that needs to be updated [please open a issue!](https://github.com/bdsmgeek/.com/issues/new)
 
@@ -18,16 +18,16 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 ### Collections/Courses
 
-- [Rope Sensei](https://ropesensei.com/)  - online shibari video agrigate
-- [CrashRetraint Collection](https://crash-restraint.com/)
-- [Rope365](https://rope365.com) - blog, turorials
+- [Rope Sensei](https://ropesensei.com/)  - online shibari video aggregate
+- [CrashRestraint Collection](https://crash-restraint.com/)
+- [Rope365](https://rope365.com) - blog, tutorials
 - [Two Knotty Boy Collection](http://www.knottyboys.com/code/downloads.php)
 - [Twisted Monk Collection](https://www.twistedmonk.com/pages/how-to-videos)
 - [Animated Knots](http://www.animatedknots.com/)
 - [La quarta corda Collection](https://www.laquartacorda.it/en/nawame/)
 - [ShibariStudy](https://shibaristudy.com/)/[Youtube](https://www.youtube.com/@ShibariStudy) - tutorials, classes
-- [The Dutchy Tutorials](https://www.theduchy.com/tutorials/)/[Youtube](https://www.youtube.com/@LazarusRedmayne) - tutorials
-- [KinkAcademy](http://www.kinkacademy.com/home/free/) - Free Video’s (paysite)
+- [The Duchy Tutorials](https://www.theduchy.com/tutorials/)/[Youtube](https://www.youtube.com/@LazarusRedmayne) - tutorials
+- [KinkAcademy](http://www.kinkacademy.com/home/free/) - Free Video’s (pay site)
 - [RVARope Rope Study](https://rvarope.com/study/)
 - [Full Circle Kink](https://www.fullcirclekink.com/) - tutorials, classes
 
@@ -39,7 +39,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Handling – Moving Rope by The Duchy](https://www.theduchy.com/handling-moving-rope)
 - [Tying the Perfect Hojo Cuff: A Shibari Tutorial](https://www.youtube.com/watch?v=JVHDXA0296A)
 - [How to Tie a Karada](http://www.symtoys.com/ideas_bondkar1.html)
-- [Tifereths Peach Tie](https://youtu.be/5O_i6cgBzYw?si=P8Jed18zSMD0UVzg)
+- [Tifereth's Peach Tie](https://youtu.be/5O_i6cgBzYw?si=P8Jed18zSMD0UVzg)
 - [How to Tie onto a vertical pole for a 'hashira' suspension.](https://www.youtube.com/watch?v=TsBRKqVTYN8)
 - [CBT Tying Tutorial by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60cfc979c4d3f)
 - [Male Chastity Tie by GoddessHasmik](https://www.pornhub.com/view_video.php?viewkey=ph60d52caa08cd3)
@@ -66,7 +66,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 ## Books
 
-- [Shibari Suspensions: A Step by Step Guide by Gestalta](https://amzn.to/43rGkKK) - suspension 
+- [Shibari Suspensions: A Step by Step Guide by Gestalta](https://amzn.to/43rGkKK) - suspension
 - [Miumi-U Teaches Japanese Shibari by Miumi-U](https://amzn.to/43vAxUn) - suspension
 - [The Beauty of Shibari by Master "K"](https://amzn.to/3IL1aLA) - history
 - [How to Be Knotty: The Essential Guide to Modern Rope Bondage by Lord Morpheous](https://amzn.to/3vnx9hS)
@@ -80,7 +80,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Complete Shibari Volume 2: Sky by Douglas Kent](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-2-sky)
 - [Arisue's Kinbaku Theory And Practices](http://www.jugoya.com/shop/index.php?main_page=product_info&products_id=255&language=en)
 
-### Free PDF Doownloads
+### Free PDF Downloads
 
 - [Rope Bondage 101](http://www.kinkfriendly.org/wp-content/uploads/2010/12/kinkfriendly_org_rope_101_compressed.pdf)
 - [The Rope Bottom Guide by Clover ](https://theropebottomguide.com/the-rope-bottom-guide/) / [mirror](/assets/rope_bottom_guide.pdf)
@@ -105,18 +105,18 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 ## Places
 - [Find A Community by Rope365](https://rope365.com/finding-a-local-community/)
 - [Fetlife - Rope Groups](https://fetlife.com/groups/120723)
-- [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) - Rope school studying Kazami Ryu's style in Toronto, Ontario, Canada 
+- [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) - Rope school studying Kazami Ryu's style in Toronto, Ontario, Canada
 - [Birdhaus](https://www.birdhausto.com/) - Kink friendly event space, with lots of rope, home to Tifereth. Toronto, ON, Canada
 - [Tension Montreal](https://tensionmtl.ca/) - Rope school in Montreal Quebec Canada
 - [Place des Cordes](https://placedescordes.com/en/) - rope space in Paris, France
-- [Anatomie Studio](https://anatomiestudio.com/) - Rope Space in Lodon, United Kindom
+- [Anatomie Studio](https://anatomiestudio.com/) - Rope Space in London, United Kingdom
 - [deGiotto Rope](https://degiottorope.com/) - Rope space Hockley, TX, USA
 
 ## Events
 
 - [Fetlife - Riggers and Rope Sluts Group - Rope Convention Calendar 2024 by Dunter](https://fetlife.com/groups/51/posts/25525282)
 - [Nuite de Cordes](https://www.nuitdescordes.com/eng) - A art exhibit event to showcase rope bondage in Montreal.
-- [Suspended Harmony](https://suspendedharmony.com/) - regular shibari perfomances in Toronto.
+- [Suspended Harmony](https://suspendedharmony.com/) - regular shibari performances in Toronto.
 - [Ropecraft](https://ropecraft.net/) - rope convention in Chicago
 
 ## Stores
@@ -136,12 +136,12 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [TwistedMonk (US)](https://www.twistedmonk.com/) - hemp, accessories
 - [Vintage Rope (US)](http://vintagerope.com/) - hemp, cotton, MFP, accessories
 - [Douglas Kent Rope](https://douglaskentrope.com/collections/all)
-- [Amatsunawa](https://us.amatsunawa.com/) / [Esty](https://www.etsy.com/shop/CleanRopeCompany) high quality jute
+- [Amatsunawa](https://us.amatsunawa.com/) / [Etsy](https://www.etsy.com/shop/CleanRopeCompany) high quality jute
 - [deGiotto Rope](https://degiottorope.com/collections/jute-rope)
 
 #### USA Suppliers
 
-- [POSH Lagnamn](https://www.langmanropes.com/product/posh/)
+- [POSH Langman](https://www.langmanropes.com/product/posh/)
 
 ### International
 
