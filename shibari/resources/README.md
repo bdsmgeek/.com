@@ -18,7 +18,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 ### Collections/Courses
 
-- [Rope Sensei](https://ropesensei.com/)  - online shibari video aggregate
+- [Rope Sensei](https://ropesensei.com/) - online shibari video aggregate
 - [CrashRestraint Collection](https://crash-restraint.com/)
 - [Rope365](https://rope365.com) - blog, tutorials
 - [Two Knotty Boy Collection](http://www.knottyboys.com/code/downloads.php)
@@ -93,7 +93,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 - [Lord Morpheous](http://lordmorpheous.com/) - author, sex-educator, rigger, photographer
 - [Two Knotty Boys](http://twoknottyboys.com/) - rope bondage educators, authors.
-- [Midori](https://twitter.com/PlanetMidori) -  educator and columnist on adventurous sexuality.
+- [Midori](https://twitter.com/PlanetMidori) - educator and columnist on adventurous sexuality.
 - [Fred Kyrel aka ShibariK](http://www.kybari.com/nouveautes/photos.html) - French Fetish photographer.
 - [AJ Nightwolf](https://www.instagram.com/torontoropeartist/) - artist, rigger, teacher at the Toronto Kinbaku Salon
 - [Tifereth](https://www.instagram.com/bed_raptor/) - artist, rigger, educator
@@ -101,8 +101,8 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Akira Naka](https://nawapedia.net/index.php?title=Akira_Naka)
 - [WykD Dave](https://rope-topia.com/blog/)
 
-
 ## Places
+
 - [Find A Community by Rope365](https://rope365.com/finding-a-local-community/)
 - [Fetlife - Rope Groups](https://fetlife.com/groups/120723)
 - [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) - Rope school studying Kazami Ryu's style in Toronto, Ontario, Canada
@@ -129,7 +129,6 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [EpicRope](https://www.epicrope.com/) - hemp, jute
 - [Rawganique (CA)](https://rawganique.com/collections/diy) - raw hemp, hemp products
 
-
 ### USA
 
 - [HempTraders](https://www.hemptraders.com/Hemp-Rope-s/1513.htm) - raw hemp
@@ -150,7 +149,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [BindMe.nl (NL)](http://www.bindme.nl/etouw3.php) - hemp, jute
 - [Esinem (UK)](http://stores.ebay.co.uk/ESINEM-Rope) - hemp, jute, linen
 - [Anatomie Rope Shop (UK)](https://ca.shibaristore.com/) jute, cotton
-- [Ouchy (NL)](http://www.niet-lief.nl/zencart/index.php?main_page=index&amp;cPath=26_22_4) - hemp, jute, synthetic hemp
+- [Ouchy (NL)](http://www.niet-lief.nl/zencart/index.php?main_page=index&cPath=26_22_4) - hemp, jute, synthetic hemp
 
 ### Equipment
 

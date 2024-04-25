@@ -30,6 +30,7 @@ My preferred maintenance routine is:
 ## Ties
 
 ### Woven Hip Harness
+
 Hip harness recommended by PondLilly for self suspensions.
 
 - https://vimeo.com/384992981
