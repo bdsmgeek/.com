@@ -18,7 +18,7 @@ Local distributors will most of the time trump or match anything online so buy l
 
 Regular maintenance of rope will reduce the likelihood of a rope failing or having something go wrong with it as well as extend its life time.
 
-My prefferd maintence routine is:
+My preferred maintenance routine is:
 
 1. After using it, run the rope through your hand while applying pressure, this will cause the strands of the rope to even out over the length of the rope and prevent spots that might bunch and ultimately could result in high strands which comprises the integrity of the entire rope.
 2. Oil your rope, I've been using mineral oil as my go to as it's mostly odorless, colorless and does not go rancid, another popular choice is jojobo oil but some people are allergic to it. to oil your rope, add oil to a rag, I've used denim and microfiber as they don't leave behind fibers and also tend to be durable enough to protect my hand from friction. ounce you have a decent amount of oil on the rag just repeat the first step pulling the rope through your rag.

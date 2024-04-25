@@ -4,7 +4,7 @@ I started in kink and rope in 2011 before any schools existed in Toronto, and ha
 
 I love rope, really do, I think it's a super great way to really touch on so many different facets of our lives. It's artistic, creative, problem solving, meditative, spiritual, physical, erotic, all in one.
 
-It's amazing and I love spreading knowledge and the appreciation of it. I keep some [notes here](./notes.md) 
+It's amazing and I love spreading knowledge and the appreciation of it. I keep some [notes here](./notes.md)
 
 As of late I've been learning the Kazami Ranki style of rope suspension from the Toronto Kinbaku style, practicing and doing a lot more with lots of partners.
 
@@ -20,7 +20,7 @@ I do private floor tying with select play partners at my apartment in Liberty Vi
 
 Thank you so much for being interested in getting tied by me! You're awesome!
 
-I  give allowances for people that want to get tied for the first time, and offer a basic "introduction" to suspension. 
+I  give allowances for people that want to get tied for the first time, and offer a basic "introduction" to suspension.
 - During this I approach the rope  in more of a Service Top mentality, which can be draining as I'm pretty much giving my energy the entire time.
 - Oftentimes this includes skipping my aftercare needs so please value this if I do offer it to you.
 
@@ -48,7 +48,7 @@ For anything in between just wear something that makes you feel sexy and confide
 
 ### Additional Resources for Rope Bondage bottoms
 
-If you're interested in educating yourself more I recommend 
+If you're interested in educating yourself more I recommend
 - [The Rope Botoming Guide by KinkyClover](https://theropebottomguide.com/the-rope-bottom-guide/)(*[backup link](../assets/rope_bottom_guide.pdf))
 - [Shibari Study Bottoming Guides (some free, some paid)](https://shibaristudy.com/catalog/search?category_id=27990&utm_source=dropdown&utm_medium=category)
   - Particularly their [Body Awareness Guide](https://shibaristudy.com/programs/fundamentals-body-awareness?utm_source=dropdown)
@@ -77,7 +77,7 @@ Please let me know if you are okay with media or not, with whatever limitations.
 
 ### Sensual
 
-Primariy I am sensual kinkster, I get energy from sensual and sexual acts, which is my preferred way to approach rope.
+Primarily I am sensual kinkster, I get energy from sensual and sexual acts, which is my preferred way to approach rope.
 
 Some of the things I like to do when tying pretty much at time:
 * Kissing
@@ -170,12 +170,12 @@ I will see to my bottom's needs before my own.
 I personally benefit from:
 * Cuddles/Physical Closeness (My ritual is to put my head in my partners lap and hold them close)
 * Physical reassurances (kisses, hugs, pets, touches)
-* Verbal Assurances ("You did good", "that was fun", "I had a good time"
+* Verbal Assurances ("You did good", "that was fun", "I had a good time")
 * Debrief (What went right, what went wrong, what to do next time)
 * Having some hydration, preferably with electrolytes/sugar (ie Gatorade, I like lemon/lime(yellow or white) or berry flavors (red or blue).)
 * Sometimes something to munch on, chips or protein bars, cookies.
 
-This all helps me avoid top drop and feeling shitty the days after. 
+This all helps me avoid top drop and feeling shitty the days after.
 
 ## Disclaimer / Risks
 
