@@ -1,0 +1,45 @@
+# This is workflow for spell checking using PySpelling lib (https://pypi.org/project/pyspelling/)
+name: Lint and Spellcheck
+# Controls when the action will run.
+on:
+  # Triggers the workflow on push or pull request events but only for the main branch
+  push:
+    branches: [ master ]
+  pull_request:
+    branches: [ master ]
+  # Allows you to run this workflow manually from the Actions tab
+  workflow_dispatch:
+# A workflow run is made up of one or more jobs that can run sequentially or in parallel
+jobs:
+  # This workflow contains a single job called "build"
+  build:
+    # The type of runner that the job will run on
+    runs-on: ubuntu-latest
+    # Steps represent a sequence of tasks that will be executed as part of the job
+    steps:
+      # Spellcheck
+      - uses: actions/checkout@v2
+      - run: |
+          #!/bin/bash
+
+          # Path to your settings.json file
+          SETTINGS=".vscode/settings.json"
+
+          # Extract the words and remove quotes and commas
+          grep -o '"[^"]*"' $SETTINGS | sed 's/"//g' | sed 's/,//g' > .project-words.txt
+          # Check if there are any changes
+          if git diff --quiet .project-words.txt; then
+            echo "No changes to commit"
+          else
+            git config --local user.email "action@github.com"
+            git config --local user.name "GitHub Action"
+            git add .project-words.txt
+            git commit -m "Update .project-words.txt"
+            echo "Changes committed"
+          fi
+      - name: Push changes
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+      - uses: streetsidesoftware/cspell-action@v6
+      - uses: articulate/actions-markdownlint@v1
