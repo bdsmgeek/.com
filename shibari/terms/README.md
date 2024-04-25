@@ -7,12 +7,11 @@ Glossary of shibari terms for my own memorization
 - tenugui - a bandana like cloth, can be used as a blindfold, head rest in suspension or to keep sweat of of the eyes.
 - furoshiki - a good wide square cloth used to bundle rope.
 - kenuki - rope that ensure that other wraps don't move.
-- agura - cross legged tie
 - tengu - chicken wing / Trex arms
 - teppo - rifle tie
 - bite - the bent middle of a doubled up rope
 - stem - a vertical column with a tie, usually something the has rope wrapping around it.
-- wrap - usually a designation of rope being coiled around wide coloumn, ie top wrap, bottom wrap.
+- wrap - usually a designation of rope being coiled around wide column, ie top wrap, bottom wrap.
 - munter - munter hitch
 - hitch - a regular hitch
 - L Friction - under the stem, over the stem, under the wrap, over the wrap, under the stem.
@@ -22,7 +21,7 @@ Glossary of shibari terms for my own memorization
 - kinbakushi - kinbaku master, can be shortened to bakushi.
 - nawashi - literally, "a maker of rope", but in SM circles it means a professional "rope artist"
 - shibaru - tie or bind with a rope
-- Hojojutsu -
+- Hojojutsu - the martial art of restraint through rope.
 
 ## Patterns / Ties
 
@@ -55,13 +54,13 @@ Glossary of shibari terms for my own memorization
 - High hands on front tie 前方 高手 縛り– Zenpou takate shibari
 - Kataashi tsuri – a "one-legged suspension"
 - Tanuki – a "raccoon dog" - suspended from ankles and wrists backwards
-- Tazuki – a "criss-cross harness"
-- Agoura – a less severe tie similar to an ebi
+- Tazuki – a "crisscross harness"
+- Agoura/Agura – a less severe tie similar to an ebi
 - Hishi – a tie using diamond shapes. When done as a full body tie, it is sometimes also called hishi-kikkou.
 - Kikkou – a body tie that ends with a tortoise shell design in the front upper torso.
 - Karada – a Japanese word used in the West for body (body harness, a "rope dress")
 
 ## References
 
-- https://en.wikipedia.org/wiki/Bondage_positions_and_methods
-- https://en.wikipedia.org/wiki/Japanese_bondage
+- [Wikipedia - Bondage Positions and Methods](shttps://en.wikipedia.org/wiki/Bondage_positions_and_methods)
+- [Wikipedia - Japanese Bondage](https://en.wikipedia.org/wiki/Japanese_bondage)
