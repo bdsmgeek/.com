@@ -64,3 +64,6 @@ Glossary of shibari terms for my own memorization
 
 - [Wikipedia - Bondage Positions and Methods](shttps://en.wikipedia.org/wiki/Bondage_positions_and_methods)
 - [Wikipedia - Japanese Bondage](https://en.wikipedia.org/wiki/Japanese_bondage)
+- [Andrea Ropes - Glossary](https://www.andrearopes.com/en/glossary/)
+- [BoudoirShibari - Tutorial Shibari](https://web.archive.org/web/20190330070132/https://boudoirshibari.com/2017/03/tuto-shibari-16-un-peu-de-vocabulaire-japonais/)
+- [Shibari Center - Ludvig Rigger](https://web.archive.org/web/20230331005425/https://www.shibari.center/shibari-dictionary/)

@@ -1,5 +1,11 @@
 # Thoughts and Notes about Shibari
 
+## Navigation
+
+- [Tie with me](/shibari/me/)
+- [Resources](/shibari/resources/)
+- [Terms/Lexicon](/shibari/terms/)
+
 ## Rope Safety
 
 Rope bondage is not safe, it is considered "edge" play. Whoever is getting tied is in danger of many very real dangers to their health, from falling and breaking their teeth to nerve compression damage that can loose them their mobility and sensation in a limb.
@@ -23,13 +29,42 @@ My preferred maintenance routine is:
 1. After using it, run the rope through your hand while applying pressure, this will cause the strands of the rope to even out over the length of the rope and prevent spots that might bunch and ultimately could result in high strands which comprises the integrity of the entire rope.
 2. Oil your rope, I've been using mineral oil as my go to as it's mostly odorless, colorless and does not go rancid, another popular choice is jojobo oil but some people are allergic to it. to oil your rope, add oil to a rag, I've used denim and microfiber as they don't leave behind fibers and also tend to be durable enough to protect my hand from friction. ounce you have a decent amount of oil on the rag just repeat the first step pulling the rope through your rag.
 3. Hang your rope, hanging your rope loosely or "resting it" allows for the tension into the strands to naturally even out. helping with the same issues from step 1.
-4. Optionally you can wax your rope with beeswax or paraffin by pulling the rope through a block. I don't really do this.
+4. Optionally you can wax your rope with beeswax/paraffin/soy by pulling the rope through a block and then heating it in the oven on low. I don't really do this.
+
+I have also heard people mix oil and wax to make a paste after which they take a handful and throw it in a dryer for a cycle to save them time oiling/waxing, never have done this though.
 
 - [Mocojute explains how he takes care of his rope](https://youtube.com/watch?v=uMq4SF2q1bw)
 
 ## Ties
 
+### Basic
+
+- Single Cuff
+- Double Cuff
+- Hitch
+- Munter Hitch
+- L Friction
+
+### Chest Harnesses
+
+- [Takate Kote (TK) or Box Tie]
+  - Two Line
+  - Three Line
+- Kazami Hands Free
+- AJ Neko Hand Free
+
 ### Hip Harnesses
 
+- Kazami Three Point Hip Harness
+- Kazami Two Point Hip Harness
+- AJ Wolf Harness
+- Gun Slinger
 - [Woven hip harness](https://vimeo.com/384992981)
   - Hip harness recommended by PondLilly for self suspensions.
+
+### Leg Ties
+
+- Gravity Boot
+- Futomomo
+- Calve Constrictor
+- Agoura
