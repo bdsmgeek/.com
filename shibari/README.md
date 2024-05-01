@@ -16,6 +16,22 @@ Always have a method to get your bottom out from the rope as fast as possible, n
 
 I've taken to wearing a fanny pack around my waist with all my tools in it when I tie.
 
+### Shibari Related Maladies/Health Conditions
+
+#### Riggers Finger
+
+A little talked about problem from rope tops is what [Andrea from La Cordes](https://youtu.be/90TB4PMeZlo?si=1NRF7xYAAgxFY-kK) call "riggers index" or riggers finger, where a rope tops index finger/s expirience pain from the repetitive motion of pulling rope with them.
+
+*Treatment*
+
+Apply cold, rest and possibly take a medince like Aleve or Advil to help with the inflammation. Gentle movement to help blood flow can be done but no hard stretching as that might irritate the condition.
+
+*Prevention*
+
+Stretching the hands and warming them up by massaging them with oil before tying can help mitigate the appearance of this condition.
+
+Personally I also try and alternate which fingers I use for pulling to try and help distribute the impact.
+
 ## Buying Rope
 
 Local distributors will most of the time trump or match anything online so buy local if you can.
