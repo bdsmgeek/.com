@@ -34,4 +34,5 @@ Here are some things I've made or am working on:
 
 ### In-Progress
 
+- [Freeform Universal Consensually Kinky (FUCK) RPG](https://bdsmgeek.github.io/fuck-rpg/) - A Table Top RPG system to allow for sex and kink first consensual adventures.
 - [Paraphilic Clinic](https://bdsmgeek.github.io/paraphilic-clinic/) a text adventure game all about fetishes built on twine2 using tweego.
