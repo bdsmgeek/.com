@@ -12,9 +12,11 @@ So I've put together this note to go over some of the common items that come up 
 
 ## Where I Tie
 
-I tend to suspend only at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) and at [Birdhaus](https://www.birdhausto.com/) events with Dungeon Monitors (DM's).
+Some places we can tie are at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) and at [Birdhaus](https://www.birdhausto.com/) events.
 
 I do private floor tying with select play partners at my apartment in Liberty Village.
+
+Given good weather I've recently taken to tying outside in places like High Park, I'm open to suggestions on photoshoot lotactions!
 
 ## First Timers / Newbies
 
