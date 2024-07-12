@@ -8,7 +8,7 @@ I thought I'd split up my expiriences and resources into [Topping](/shibari/top)
   - Topping
   - Bottoming
   - With Me
- 
+
 ## Thoughts
 
 In progress.
