@@ -63,7 +63,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [“Nana to Kaoru”](http://mangafox.me/manga/nana_to_kaoru/) - Cute BDSM Manga
 - [Rope Taste Test - Kinbaku Today](https://www.kinbakutoday.com/flavor-of-the-rope/)
 - [Medical Journal - Acute Radial Compressive Neuropathy: The Most Common Injury Induced by Japanese Rope Bondage](https://www.cureus.com/articles/155296-acute-radial-compressive-neuropathy-the-most-common-injury-induced-by-japanese-rope-bondage#!/)
-
+- [Rope Radar - negotiation matrix](https://roperadar.com/download/)
 ## Books
 
 - [Shibari Suspensions: A Step by Step Guide by Gestalta](https://amzn.to/43rGkKK) - suspension
