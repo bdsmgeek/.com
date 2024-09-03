@@ -80,6 +80,10 @@ Please let me know if you are okay with media or not, with whatever limitations.
 
 ## Rope Style / Desired Feeling and Energy
 
+Everyone does rope for their own reasons, and need different things from it. I like it when my rope has sensual elements but others might not, it's definitely something to talk about before a scene, I'm happy to use the [Rope Radar](https://roperadar.com/download/) as a way to negotiate the type of energy we want to have during a scene.
+
+Here are some of the styles that I play with and what they involve:
+
 ### Sensual
 
 Primarily I am sensual kinkster, I get energy from sensual and sexual acts, which is my preferred way to approach rope.
