@@ -14,9 +14,9 @@ So I've put together this note to go over some of the common items that come up 
 
 Some places we can tie are at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/) and at [Birdhaus](https://www.birdhausto.com/) events.
 
-I do private floor tying with select play partners at my apartment in Liberty Village.
+I do private floor tying with select play partners at my apartment in Liberty Village and have on occasion done some tying outdoors in special spots in good weather.
 
-Given good weather I've recently taken to tying outside in places like High Park, I'm open to suggestions on photoshoot lotactions!
+Given good weather I've recently taken to tying outside in places like High Park, I'm open to suggestions on photoshoot locations!
 
 ## First Timers / Newbies
 
@@ -52,11 +52,13 @@ For anything in between just wear something that makes you feel sexy and confide
 
 ### Additional Resources for Rope Bondage bottoms
 
-If you're interested in educating yourself more I recommend
+If you're interested in educating yourself more I recommend reading the following:
 
 - [The Rope Bottoming Guide by KinkyClover](https://theropebottomguide.com/the-rope-bottom-guide/)(\*[backup link](../assets/rope_bottom_guide.pdf))
 - [Shibari Study Bottoming Guides (some free, some paid)](https://shibaristudy.com/catalog/search?category_id=27990&utm_source=dropdown&utm_medium=category)
   - Particularly their [Body Awareness Guide](https://shibaristudy.com/programs/fundamentals-body-awareness?utm_source=dropdown)
+
+There are also Rope Bottoming Classes at Birdhaus on occasion, checkout their [Instagram](https://www.instagram.com/birdhausto) for the most up to date listings, you can also subscribe to their [EventBrite](https://www.eventbrite.ca/o/birdhaus-37452212083)
 
 ## Photos / Videos and posting to socials
 
@@ -64,7 +66,7 @@ I enjoy seeing people react to my work and creating artistic visions so photos a
 
 I will usually post to both my Instagram and Fetlife accounts with attribution as negotiated with my partner.
 
-Please let me know if you are okay with media or not, with whatever limitations.
+Please let me know if you are okay with media or not, with whatever limitations, including censoring of face/tattoos.
 
 ## What to Expect?
 
@@ -80,7 +82,9 @@ Please let me know if you are okay with media or not, with whatever limitations.
 
 ## Rope Style / Desired Feeling and Energy
 
-Everyone does rope for their own reasons, and need different things from it. I like it when my rope has sensual elements but others might not, it's definitely something to talk about before a scene, I'm happy to use the [Rope Radar](https://roperadar.com/download/) as a way to negotiate the type of energy we want to have during a scene.
+Everyone does rope for their own reasons, and need different things from it. I like it when my rope has sensual elements but others might not, it's definitely something to talk about before a scene.
+
+I'm happy to use the [Rope Radar](https://roperadar.com/download/) as a way to negotiate the type of energy we want to have during a scene.
 
 Here are some of the styles that I play with and what they involve:
 
@@ -99,11 +103,14 @@ Some of the things I like to do when tying pretty much at time:
 - Groping / Touching / Squeezing (head, face, neck, Arms, back, stomach, Breasts, Butt, Thighs, Legs, Feet)
 - Biting exposed skin (earlobe, neck, stomach, arms, back, legs, hips, butt)
 - Spanking / Slapping
+- Manhandling, pushing, pulling, pining
 - Pinching
 - Scratching
 - Tickling
 - Mouth Rope
 - Crotch Rope
+
+Sensual ties usually include less in any talking as I want to focus on the experience.
 
 ### Sexual
 
@@ -118,9 +125,11 @@ I get tested regularly at the [Safer Six Clinic](https://www.safersix.ca/) when 
 
 If we participate in sexual activity I expect the same courtesy and upfront disclosure of any sexual health situations.
 
-### Clinical / Artistic
+### Clinical / Artistic / Educational
 
 I am open to tying without the above elements in the right circumstances. Practice sessions in particular tend to be very clinical as I am learning the material.
+
+Usually I'll try and keep up some dialog to help keep things comfortable.
 
 This style will be basically me doing what I need to get you in the rope and then down from it.
 
@@ -146,6 +155,8 @@ I will want to have a discussion that goes through these points in this note, an
 I want to know:
 
 - Injuries / Conditions / Physical / Mental Limitations - like:
+  - Inflammatory conditions or related, such as Crohn's disease, that may prevent you from taking NSAIDs (nonsteroidal anti-inflammatory drugs).
+  - Diabetes (higher risk of fainting, extremity circulation  loss)
   - Joint/ mobility issues
   - Nerve Damage / Issues
   - Relevant Medications
@@ -201,7 +212,9 @@ Resources on Safety:
 
 ### Nerve Damage
 
-Nerve Damage is possible at any time with rope, keeping aware of your body and communicating sharp pains, and any loss of sensation to mitigate the problems that could arise from it.
+Nerve Damage is possible at any time with any type of rope suspended or not. 
+
+Keeping aware of your body and communicating sharp pains, and any loss of sensation to mitigate the problems that could arise from it.
 
 To check most arm nerves you can do a hand check:
 
@@ -212,7 +225,7 @@ Things to do if you feel anything off:
 
 - Tell me, I'm there for you, we will adjust or remove the rope gently.
 - Apply something cold covered in a cloth
-- take a NSAID (nonsteroidal anti-inflammatory drug) like ibuprofen (Advil, Motrin) or naproxen (Aleve)
+- take a NSAID (nonsteroidal anti-inflammatory drug) like ibuprofen (Advil, Motrin or naproxen/Aleve)
 - Rest the limb, massage has the potential of possibly making it worse.
 
 The recovery process from nerve compression can be a few minutes to few months depending on severity.
