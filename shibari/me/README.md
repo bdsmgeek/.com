@@ -156,7 +156,7 @@ I want to know:
 
 - Injuries / Conditions / Physical / Mental Limitations - like:
   - Inflammatory conditions or related, such as Crohn's disease, that may prevent you from taking NSAIDs (nonsteroidal anti-inflammatory drugs).
-  - Diabetes (higher risk of fainting, extremity circulation  loss)
+  - Diabetes (higher risk of fainting, extremity circulation loss)
   - Joint/ mobility issues
   - Nerve Damage / Issues
   - Relevant Medications
@@ -212,7 +212,7 @@ Resources on Safety:
 
 ### Nerve Damage
 
-Nerve Damage is possible at any time with any type of rope suspended or not. 
+Nerve Damage is possible at any time with any type of rope suspended or not.
 
 Keeping aware of your body and communicating sharp pains, and any loss of sensation to mitigate the problems that could arise from it.
 
