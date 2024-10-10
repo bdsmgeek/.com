@@ -145,12 +145,13 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 
 ### International
 
+- [Koumanawa JP](https://koumanawa.com/en/tech/)
 - [Nawaya JP](https://www.nawaya.jp/)
-- [Kaminawa JP](https://kaminawa.jp/product/shibari-jute-rope-%CF%866mm-200m-roll%E3%80%90made-in-japan%E3%80%91/)
-- [BindMe.nl (NL)](http://www.bindme.nl/etouw3.php) - hemp, jute
+- [Kaminawa JP](https://kaminawa.jp/)
 - [Esinem (UK)](http://stores.ebay.co.uk/ESINEM-Rope) - hemp, jute, linen
 - [Anatomie Rope Shop (UK)](https://ca.shibaristore.com/) jute, cotton
 - [Ouchy (NL)](http://www.niet-lief.nl/zencart/index.php?main_page=index&cPath=26_22_4) - hemp, jute, synthetic hemp
+- [BindMe.nl (NL)](http://www.bindme.nl/etouw3.php) - hemp, jute
 
 ### Equipment
 
