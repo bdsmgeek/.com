@@ -6,7 +6,7 @@
 
 # BDSMGEEK.com
 
-My names BDSMGeek, I'm a Toronto kink enthusiast with a passion for rope and butt play!
+My names BDSMGeek, I'm a Toronto kink enthusiast with a passion for rope!
 
 ## Social Media
 
@@ -18,8 +18,7 @@ My names BDSMGeek, I'm a Toronto kink enthusiast with a passion for rope and but
 
 I've re-sparked my love of rope and have been doing a lot of it recently, learning at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/pages/about-us)
 
-If you are interested in getting tied or tying me up read my note on that [here.](/shibari/me)
-
+- [Tie With Me](/shibari/me)
 - [My Notes on Shibari](/shibari)
 - [Terminology / Lexicon](/shibari/terms)
 - [List of Shibari Resources](/shibari/resources)
