@@ -1,6 +1,6 @@
 # Shibari Topping
 
-I thought I'd split up my expiriences and resources into [Topping](/shibari/top) and [Bottoming](/shibari/bottom).
+I thought I'd split up my experiences and resources into [Topping](/shibari/top) and [Bottoming](/shibari/bottom).
 
 ## Navigation
 
