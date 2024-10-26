@@ -1,6 +1,6 @@
 # Shibari Bottoming
 
-The bottoming portion of my thoughts and resources about shibari/Kinabaku.
+The bottoming portion of my thoughts and resources about shibari/Kinbaku.
 
 ## Thoughts
 
