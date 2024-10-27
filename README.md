@@ -19,6 +19,7 @@ My names BDSMGeek, I'm a Toronto kink enthusiast with a passion for rope!
 I've re-sparked my love of rope and have been doing a lot of it recently, learning at the [Toronto Kinbaku Salon](https://torontokinbakusalon.com/pages/about-us)
 
 - [Tie With Me](/shibari/me)
+- [Start Learning Rope](/shibari/start/)
 - [My Notes on Shibari](/shibari)
 - [Terminology / Lexicon](/shibari/terms)
 - [List of Shibari Resources](/shibari/resources)
