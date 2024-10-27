@@ -68,7 +68,7 @@ Some other places you can shop in Canada would include:
 - [EpicRope](https://www.epicrope.com/)
 - [Rawganique Jute](https://rawganique.com/products/jute-rope-6mm-1kg-roll?_pos=1&_sid=0673c2923&_ss=r) | [Hemp](https://rawganique.com/collections/diy/products/6mm-hemp-rope-1-4-1kg-roll)
 
-You might hear about POSH, a artificial  
+You might hear about POSH, a artificial
 
 ## Accoutrements / Extras
 
