@@ -29,7 +29,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [RopeStudy - Rope With Others](https://ropestudy.com/courses/101/lessons/rope-with-others/)
 - [TheDuchy - Negotiation Starter (pdf)](https://www.theduchy.com/wp-content/uploads/2022/10/Negotiation-Starter-v2.1-General-Rope-TheDuchy.pdf) / [backup](/assets/Negotiation-Starter-v2.1-General-Rope-TheDuchy.pdf)
 - [ShibariStudy - Consent and Negotiation](https://shibaristudy.com/pages/consent-negotiations)
-- [ruminating -  Bottom-Driven Rope Negotiation](https://fetlife.com/users/3612738/posts/3248971) / [backup](/assets/Bottom-DrivenRopeNegotiation.pdf)
+- [ruminating - Bottom-Driven Rope Negotiation](https://fetlife.com/users/3612738/posts/3248971) / [backup](/assets/Bottom-DrivenRopeNegotiation.pdf)
 - [bellecorde - sample negotiation](https://www.youtube.com/watch?v=ciFMqMmc_ZE)
 
 ### Collections/Courses
