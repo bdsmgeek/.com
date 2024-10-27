@@ -18,11 +18,11 @@ If you're not sure where you fall or if you like rope, I am happy to take you to
 
 ## Performances
 
-I charge $300 for a 20 min performance with a model, this include travel within Toronto, setup and tear down, as well as a up to 20 min Q&A and demo session. 
+I charge $300 for a 20 min performance with a model, this include travel within Toronto, setup and tear down, as well as a up to 20 min Q&A and demo session.
 
 A non refundable deposit of %50 of the fee is expected on booking.
 
-Every additional performance would be $100 up to a max of 2 additional performances with 30min breaks or to the comfort of the model. 
+Every additional performance would be $100 up to a max of 2 additional performances with 30min breaks or to the comfort of the model.
 
 I reserve the right to refuse a performance if the site is not in workable condition or deemed unsafe.
 
