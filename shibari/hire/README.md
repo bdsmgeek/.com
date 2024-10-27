@@ -32,7 +32,7 @@ If you've been dreaming of capturing some moments that include rope in them I am
 
 I charge a base rate of $200, which includes travel within Toronto, and a $100 per hour after the first hour.
 
-I can assist with sourcing of photographers/videographers, and models at their own individual rates for no extra charge.
+I can assist with sourcing of photographers, and models at their own individual rates for no extra charge.
 
 Scope and limits will be determined by all parties involved, including use of media created.
 
