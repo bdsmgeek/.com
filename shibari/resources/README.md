@@ -16,6 +16,22 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Kinbakunomicon by Faviola_Llervu](http://www.wallflowercodex.com/kinbakunomicon/00a.html)
 - [Kinbaku Today](https://www.kinbakutoday.com/)
 
+### Podcasts
+
+- [RopePodcast](https://open.spotify.com/show/0SDT1GfNdc96GQ2bFiKDQu)
+- [Shibari Study Podcast](https://open.spotify.com/show/7ExcQhAxZSDm8LFLskhIdK)
+- [Gray Dancers Ropecast (finished)](https://open.spotify.com/show/6K7nIYYnYmCO02WgC9iNgZ)
+
+### Consent
+
+- [CrashRestraint - Getting Started with Rope](https://crash-restraint.com/ties/107)
+- [CrashRestraint - Negotiation and Consent](https://crash-restraint.com/ties/272)
+- [RopeStudy - Rope With Others](https://ropestudy.com/courses/101/lessons/rope-with-others/)
+- [TheDuchy - Negotiation Starter (pdf)](https://www.theduchy.com/wp-content/uploads/2022/10/Negotiation-Starter-v2.1-General-Rope-TheDuchy.pdf) / [backup](/assets/Negotiation-Starter-v2.1-General-Rope-TheDuchy.pdf)
+- [ShibariStudy - Consent and Negotiation](https://shibaristudy.com/pages/consent-negotiations)
+- [ruminating -  Bottom-Driven Rope Negotiation](https://fetlife.com/users/3612738/posts/3248971) / [backup](/assets/Bottom-DrivenRopeNegotiation.pdf)
+- [bellecorde - sample negotiation](https://www.youtube.com/watch?v=ciFMqMmc_ZE)
+
 ### Collections/Courses
 
 - [Rope Sensei](https://ropesensei.com/) - online shibari video aggregate
