@@ -98,7 +98,6 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Arisue's Kinbaku Theory And Practices](http://www.jugoya.com/shop/index.php?main_page=product_info&products_id=255&language=en)
 - [Stephan Niederwieser - Tie me up](https://a.co/d/7cngTzN) - how to tie men
 
-
 ### Free PDF Downloads
 
 - [Rope Bondage 101](http://www.kinkfriendly.org/wp-content/uploads/2010/12/kinkfriendly_org_rope_101_compressed.pdf)
