@@ -46,6 +46,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [KinkAcademy](http://www.kinkacademy.com/home/free/) - Free Video’s (pay site)
 - [RVARope Rope Study](https://rvarope.com/study/)
 - [Full Circle Kink](https://www.fullcirclekink.com/) - tutorials, classes
+- [Kinky love - Rope Bondage](https://kinklove.net/rope-bondage) - aggrigate
 
 ### Tutorials
 
