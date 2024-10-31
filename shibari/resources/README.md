@@ -96,6 +96,8 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Complete Shibari Volume 1: Land by Douglas Kent](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-1-land)
 - [Complete Shibari Volume 2: Sky by Douglas Kent](https://douglaskentrope.com/collections/all-shibari-stuff/products/complete-shibari-volume-2-sky)
 - [Arisue's Kinbaku Theory And Practices](http://www.jugoya.com/shop/index.php?main_page=product_info&products_id=255&language=en)
+- [Stephan Niederwieser - Tie me up](https://a.co/d/7cngTzN) - how to tie men
+
 
 ### Free PDF Downloads
 
