@@ -22,7 +22,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Shibari Study Podcast](https://open.spotify.com/show/7ExcQhAxZSDm8LFLskhIdK)
 - [Gray Dancers Ropecast (finished)](https://open.spotify.com/show/6K7nIYYnYmCO02WgC9iNgZ)
 
-### Consent
+### Consent / Negotiation
 
 - [CrashRestraint - Getting Started with Rope](https://crash-restraint.com/ties/107)
 - [CrashRestraint - Negotiation and Consent](https://crash-restraint.com/ties/272)
@@ -31,6 +31,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [ShibariStudy - Consent and Negotiation](https://shibaristudy.com/pages/consent-negotiations)
 - [ruminating - Bottom-Driven Rope Negotiation](https://fetlife.com/users/3612738/posts/3248971) / [backup](/assets/Bottom-DrivenRopeNegotiation.pdf)
 - [bellecorde - sample negotiation](https://www.youtube.com/watch?v=ciFMqMmc_ZE)
+- [Rope Negotiation Template - cassandramae](https://docs.google.com/document/u/0/d/1tt0mdnTEem6VAAVn7FRsgh5UDpF9IaJzn2bKzSxbD9g/mobilebasic#heading=h.l20qyr5r73yp)
 
 ### Collections/Courses
 
