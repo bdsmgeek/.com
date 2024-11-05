@@ -120,6 +120,7 @@ If you notice anything that needs to be updated [please open a issue!](https://g
 - [Kazami Ranki (Ryu)](https://nawapedia.net/index.php?title=Ranki_Kazami)
 - [Akira Naka](https://nawapedia.net/index.php?title=Akira_Naka)
 - [WykD Dave](https://rope-topia.com/blog/)
+- [Hajime Kinoko](https://shibari.jp/)
 
 ## Places
 
