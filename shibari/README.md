@@ -51,6 +51,12 @@ I have also heard people mix oil and wax to make a paste after which they take a
 
 - [Mocojute explains how he takes care of his rope](https://youtube.com/watch?v=uMq4SF2q1bw)
 
+### How to remove twists from your rope
+
+Method 1 as seen in bellow video is to re balance the twists by introducing new tension into the strands by rolling a foot of one end and then pushing the tension through the rope by pulling through pinched fingers.
+
+(deGioto Rope - Shibari Lessons (Rope Care) Get Out The Twisties)[https://youtube.com/watch?v=-YRY2tLpieg]
+
 ## Ties
 
 ### Basic
