@@ -84,7 +84,7 @@ Method 1 as seen in bellow video is to re balance the twists by introducing new 
 - Gun Slinger
 - [Woven hip harness](https://vimeo.com/384992981)
   - Hip harness recommended by PondLilly for self suspensions.
- 
+
 ### Body Harnesses
 
 - Hajime Kinoko Hands free Diamond Harness with Panties
