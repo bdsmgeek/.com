@@ -22,21 +22,15 @@ Given good weather I've recently taken to tying outside in places like High Park
 
 Thank you so much for being interested in getting tied by me! You're awesome!
 
-I give allowances for people that want to get tied for the first time, and offer a basic "introduction" to suspension.
+I have gotten to the point where I realize that I don't enjoy tying without a connection, let's have a proper discussion and see if our needs align.
 
-- During this I approach the rope in more of a Service Top mentality, which can be draining as I'm pretty much giving my energy the entire time.
-- Oftentimes this includes skipping my aftercare needs so please value this if I do offer it to you.
+I currently am only looking to tie platonicly for practice classes (level 3 at the Toronto Kinabku Salon / BirdHaus Lessons), for photo shoots, or for paid sessions (see [Hire Me](/shibari/hire)).
 
-I ask that if you do want to get tied up for the first time by me that:
+This is so I can balance my needs vs the energy I expend in tying.
 
-1. You make sure I know that this is your first time.
-1. Go through the rest of this document.
-1. Understand I may not want to or have the energy/mental spoons to tie you at this time, I reserve the right to refuse to tie anyone.
-1. Communicate what type of rope style you'd be looking for (if its the introductory / Clinical or something else), understand I may not want to tie you again in the same style.
-1. Getting Tied by me once does not automatically make us play partners, any further play will be talked about.
-1. You are responsible to actively communicate during the tie, I will check in but if something is going on speak up.
+Message me on Fetlife or Instagram and lets have a chat. I sometimes go to munches so that can also be a good time to start a conversation.
 
-All that said I am an open and chill person so just talk to me if you have thoughts/concerns, just respect me and my time please and will do so in turn.
+Note: please only approach me in public if I am by myself or socializing. It is very disrespectful to me and my partner if you interrupt a scene even if we are just starting, you will be rejected automatically for that kind of behavior.
 
 ### What should you wear
 
