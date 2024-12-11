@@ -24,7 +24,7 @@ Thank you so much for being interested in getting tied by me! You're awesome!
 
 I have gotten to the point where I realize that I don't enjoy tying without a connection, let's have a proper discussion and see if our needs align.
 
-I currently am only looking to tie platonicly for practice classes (level 3 at the Toronto Kinabku Salon / BirdHaus Lessons), for photo shoots, or for paid sessions (see [Hire Me](/shibari/hire)).
+I currently am only looking to tie platonicaly for practice classes (level 3 at the Toronto Kinbaku Salon / BirdHaus Lessons), for photo shoots, or for paid sessions (see [Hire Me](/shibari/hire)).
 
 This is so I can balance my needs vs the energy I expend in tying.
 
