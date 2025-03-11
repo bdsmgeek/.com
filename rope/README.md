@@ -6,8 +6,8 @@ BDSMGeek has collaborated with the wonderful people at Birdhaus to bring you Bir
 our specially designed JBO free, scent free, all natural, responsibly sourced jute!
 
 We work with the Koumanawa Company to source the finest fibers from Bangladesh, process them
-with ethically sustainably sourced soybean oil instead of dangerous Jute Batching Oil, spin 
-them into rope with just the right amount of twist and tightness, all in good and fair working 
+with ethically sustainably sourced soybean oil instead of dangerous Jute Batching Oil, spin
+them into rope with just the right amount of twist and tightness, all in good and fair working
 conditions.
 
 [Video: KOUMANAWA Yarn Production](https://www.youtube.com/watch?v=u1YOpJLW_6M)
@@ -23,5 +23,5 @@ You can reach out to bdsmgeek@gmail.com with any inquiries about the rope.
 
 ### Techical Specifications
 
-* Length: 8m / 26ft
-* Width: 5.5mm / 3/16in
+- Length: 8m / 26ft
+- Width: 5.5mm / 3/16in
