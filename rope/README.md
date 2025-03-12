@@ -10,8 +10,8 @@ with ethically sustainably sourced soybean oil instead of dangerous Jute Batchin
 them into rope with just the right amount of twist and tightness, all in good and fair working
 conditions.
 
-* [Video: KOUMANAWA Yarn Production](https://www.youtube.com/watch?v=u1YOpJLW_6M)
-* [Video: Why no JBO?](https://www.youtube.com/watch?v=I72KymMR7i4)
+- [Video: KOUMANAWA Yarn Production](https://www.youtube.com/watch?v=u1YOpJLW_6M)
+- [Video: Why no JBO?](https://www.youtube.com/watch?v=I72KymMR7i4)
 
 We import them to Canada to finally hand process and finish them with 100% Jojoba Oil and
 Soybean Wax, so that you can get safe, strong, and comfortable rope to use in your intimate
