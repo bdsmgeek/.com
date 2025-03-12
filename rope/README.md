@@ -19,7 +19,7 @@ practices.
 
 Rope can be purchased at [Birdhaus](https://www.birdhausto.com/).
 
-You can reach out to [me by email](bdsmgeek@gmail.com) with any inquiries about the rope.
+You can reach out to [me by email](mailto:bdsmgeek@gmail.com) with any inquiries about the rope.
 
 ### Technical Specifications
 
