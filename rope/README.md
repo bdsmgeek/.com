@@ -23,5 +23,5 @@ You can reach out to [me by email](bdsmgeek@gmail.com) with any inquiries about 
 
 ### Technical Specifications
 
-* Length: 8m / 26ft
-* Width: 5.5mm / 3/16in
+- Length: 8m / 26ft
+- Width: 5.5mm / 3/16in
