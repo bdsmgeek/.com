@@ -22,6 +22,7 @@ Glossary of shibari terms for my own memorization
 - nawashi - literally, "a maker of rope", but in SM circles it means a professional "rope artist"
 - shibaru - tie or bind with a rope
 - Hojojutsu - the martial art of restraint through rope.
+- Daruma - position with legs folded behind arms, with the legs attempting to go behind the head, often with the arms bound behind the back.
 
 ## Patterns / Ties
 
