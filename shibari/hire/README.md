@@ -40,7 +40,6 @@ Scope and limits will be determined by all parties involved, including use of me
 
 ### Models
 
-- [Fruitopazia](https://fetlife.com/users/4812338)
 - [YourWildestAngel](https://fetlife.com/users/14885781) / [Women_Reborn](https://www.instagram.com/women_reborn/)
 
 ### Photographers
