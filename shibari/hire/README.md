@@ -2,7 +2,7 @@
 
 Being passionate about shibari for over 10 years, including making and selling my own rope, after many pleasure photo-shoots and performances I debuted as a professional rigger at FloorPlay with YourWildestAngel on Oct 25th 2024 at the [FloorPlay](https://www.instagram.com/wefloorplay) party held at [Objx Studio](https://www.objx.studio/).
 
-All inquiries can be sent to bdsmgeek@gmail.com
+All inquiries can be sent to <bdsmgeek@gmail.com>
 
 ## Private Sessions
 
