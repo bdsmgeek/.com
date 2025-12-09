@@ -60,15 +60,18 @@ That said you can just as easily find nylon rope at a hardware store:
 
 That said if you've determined that you're going into rope for the long hall and want to make an investment so that you save your hands and have a easier time, buy some jute or hemp.
 
-The [Toronto Kinbaku Salon has jute for sale](https://torontokinbakusalon.com/collections/rope) on their site and if you buy it and let them know when you'll be at the location they can arrange it so you can pick it up.
+I sell rope that I import and process under my company [Torinawa Ltd.](https://torinawa.ca), its JBO free and made with high quality jute by a rope specialist that works with one of the largest Japanese rope companies to design rope specifically for rope bondage. Reach out to me on my socials, email or come by Birdhaus and ask to check it out.
 
 Some other places you can shop in Canada would include:
 
+- [Toronto Kinbaku Salon](https://torontokinbakusalon.com/collections/rope)
 - [Tension Montreal Shop](https://tensionmtl.ca/collections/rope)
 - [EpicRope](https://www.epicrope.com/)
 - [Rawganique Jute](https://rawganique.com/products/jute-rope-6mm-1kg-roll?_pos=1&_sid=0673c2923&_ss=r) | [Hemp](https://rawganique.com/collections/diy/products/6mm-hemp-rope-1-4-1kg-roll)
 
-You might hear about POSH, a artificial
+You might hear about POSH, a artificial hemp like fiber that has been gaining popularity recently for use in bondage, particularly as up-lines (lines used to connect the bottom to the hard point). As a artificial fiber like nylon it is hardy and water proof, and can be safety rated, the texture of being a hemp like material gives it a lot more tooth/gripyness so it holds knots well. It does tend to be a stiffer rope and I find that it can be hard on the hands and has a low burn point like nylon so you need to be careful with how quickly you are manipulating it.
+
+I also sell some POSH if you would be interested in purchasing some locally, I have not found any other local vendor of the rope so I started importing it into the city myself.
 
 ## Accoutrements / Extras
 
