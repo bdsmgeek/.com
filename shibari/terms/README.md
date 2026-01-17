@@ -8,6 +8,7 @@ Glossary of shibari terms for my own memorization
 - furoshiki - a good wide square cloth used to bundle rope.
 - kenuki - rope that ensure that other wraps don't move.
 - tengu - chicken wing / Trex arms
+- tenshi - rabbit ears / above the head folded arms
 - teppo - rifle tie
 - bite - the bent middle of a doubled up rope
 - stem - a vertical column with a tie, usually something the has rope wrapping around it.
@@ -62,7 +63,7 @@ Glossary of shibari terms for my own memorization
 
 ## References
 
-- [Wikipedia - Bondage Positions and Methods](shttps://en.wikipedia.org/wiki/Bondage_positions_and_methods)
+- [Wikipedia - Bondage Positions and Methods](https://en.wikipedia.org/wiki/Bondage_positions_and_methods)
 - [Wikipedia - Japanese Bondage](https://en.wikipedia.org/wiki/Japanese_bondage)
 - [Andrea Ropes - Glossary](https://www.andrearopes.com/en/glossary/)
 - [BoudoirShibari - Tutorial Shibari](https://web.archive.org/web/20190330070132/https://boudoirshibari.com/2017/03/tuto-shibari-16-un-peu-de-vocabulaire-japonais/)

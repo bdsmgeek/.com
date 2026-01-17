@@ -73,7 +73,7 @@ Method 1 as seen in bellow video is to re balance the twists by introducing new 
   - Two Line
   - Three Line
 - Kazami Hands Free
-- AJ Neko Hand Free
+- AJ Neko Hands Free
 - Hajime Kinoko TK
 
 ### Hip Harnesses
@@ -84,6 +84,7 @@ Method 1 as seen in bellow video is to re balance the twists by introducing new 
 - Gun Slinger
 - [Woven hip harness](https://vimeo.com/384992981)
   - Hip harness recommended by PondLilly for self suspensions.
+- Tifereth's - Infinity Harness
 
 ### Body Harnesses
 
@@ -95,5 +96,5 @@ Method 1 as seen in bellow video is to re balance the twists by introducing new 
 - Gravity Boot
 - Futomomo
 - Calve Constrictor
-- Agoura
-- Mermaid
+- Kazami Agoura
+- Kazami Mermaid
